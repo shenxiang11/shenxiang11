@@ -24,7 +24,7 @@ function calcMoment() {
   const total = endOfYear - startOfYear;
   const percent = (passed / total * 100).toFixed(2);
 
-  let totalLen = 100;
+  let totalLen = 50;
   const passedLen = Math.floor(totalLen * percent / 100);
   const restLen = totalLen - passedLen;
 

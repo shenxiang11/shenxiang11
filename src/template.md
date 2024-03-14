@@ -5,6 +5,6 @@
 
 ## 珍惜时间
 
-<%= moment.bar %> <%= moment.percent %>%
+今年已经过去：<%= moment.bar %> <%= moment.percent %>%
 
 > ⏰ 最后更新于 <%= updateAt %>
