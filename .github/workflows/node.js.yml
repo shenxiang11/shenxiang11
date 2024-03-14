@@ -16,6 +16,8 @@ jobs:
     runs-on: ubuntu-latest
 
     steps:
+      - name: 设置时区
+        run: sudo timedatectl set-timezone Asia/Shanghai
       - uses: actions/checkout@v2
       - name: Use Node.js
         uses: actions/setup-node@v1
