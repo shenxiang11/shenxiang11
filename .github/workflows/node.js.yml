@@ -1,0 +1,33 @@
+name: 生成 README
+
+on:
+  push:
+    branches: [ master ]
+  pull_request:
+    branches: [ master ]
+  schedule:
+    # UTC + 8 = 中国时区
+    # 22:30 + 8 = 6:30（明天） 每 6 点半触发一次
+    - cron: '30 22 * * *'
+
+jobs:
+  build:
+
+    runs-on: ubuntu-latest
+
+    steps:
+      - uses: actions/checkout@v2
+      - name: Use Node.js
+        uses: actions/setup-node@v1
+        with:
+          node-version: '18.16.0'
+      - name: Install dependencies
+        run: npm install
+      - name: Update README.md
+        run: node ./src/index.js
+      - name: Commit change & Push
+        run: |
+          git config user.name 'github-actions[bot]'
+          git config user.email '41898282+github-actions[bot]@users.noreply.github.com'
+          git commit -am "bot: update README.md automatically"
+          git push
