@@ -1,10 +1,10 @@
 ## 每日一图
 
-![The Bahamas photographed from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 26.38%
+今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 26.65%
 
-> ⏰ 最后更新于 2024年04月06日 06:30:54
+> ⏰ 最后更新于 2024年04月07日 06:30:52
