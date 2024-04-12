@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DragonWaterfall_EN-US2799967886_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.02%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.29%
 
-> ⏰ 最后更新于 2024年04月12日 06:31:22
+> ⏰ 最后更新于 2024年04月13日 06:30:38
 
 
 ---
