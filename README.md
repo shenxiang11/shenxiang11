@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Apple trees in spring, Germany (© Smileus/Getty Images)](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.37%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.57%
 
-> ⏰ 最后更新于 2024年04月13日 12:47:03
+> ⏰ 最后更新于 2024年04月14日 06:30:53
 
 
 ---
