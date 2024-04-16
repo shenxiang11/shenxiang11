@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://cn.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.12%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.39%
 
-> ⏰ 最后更新于 2024年04月16日 06:30:48
+> ⏰ 最后更新于 2024年04月17日 06:31:35
 
 
 ---
