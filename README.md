@@ -1,13 +1,13 @@
 ## 每日一图
 
-![American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)](https://cn.bing.com/th?id=OHR.SpringCub_EN-US3818124104_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.66%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.94%
 
-> ⏰ 最后更新于 2024年04月18日 06:30:49
+> ⏰ 最后更新于 2024年04月19日 06:30:47
 
 
 ---
