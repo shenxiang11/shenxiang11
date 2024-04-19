@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.94%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.21%
 
-> ⏰ 最后更新于 2024年04月19日 06:30:47
+> ⏰ 最后更新于 2024年04月20日 06:30:40
 
 
 ---
