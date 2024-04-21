@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.49%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.76%
 
-> ⏰ 最后更新于 2024年04月21日 06:30:45
+> ⏰ 最后更新于 2024年04月22日 06:30:47
 
 
 ---
