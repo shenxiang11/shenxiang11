@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.76%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.03%
 
-> ⏰ 最后更新于 2024年04月22日 06:30:47
+> ⏰ 最后更新于 2024年04月23日 06:31:45
 
 
 ---
