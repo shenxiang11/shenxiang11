@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Library of Trinity College Dublin, Ireland (© Vincent Isore/Getty Images)](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.03%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.31%
 
-> ⏰ 最后更新于 2024年04月23日 06:31:45
+> ⏰ 最后更新于 2024年04月24日 06:30:51
 
 
 ---
