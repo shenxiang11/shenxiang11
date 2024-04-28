@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Leucistic Anna&#39;s hummingbird in the Australian Garden, UC Santa Cruz Arboretum, California (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_EN-US5796079642_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.40%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.68%
 
-> ⏰ 最后更新于 2024年04月28日 06:31:06
+> ⏰ 最后更新于 2024年04月29日 06:30:44
 
 
 ---
