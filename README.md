@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hawaiian lei flower garlands (© Jotika Pun/Shutterstock)](https://cn.bing.com/th?id=OHR.HawaiianLei_EN-US6290126556_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_EN-US6516727783_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.50%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.77%
 
-> ⏰ 最后更新于 2024年05月02日 06:32:41
+> ⏰ 最后更新于 2024年05月03日 06:30:53
 
 
 ---
