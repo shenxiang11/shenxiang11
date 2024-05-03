@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_EN-US6516727783_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)](https://cn.bing.com/th?id=OHR.SonoranSpring_EN-US9207877073_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.77%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.05%
 
-> ⏰ 最后更新于 2024年05月03日 06:30:53
+> ⏰ 最后更新于 2024年05月04日 06:30:36
 
 
 ---
