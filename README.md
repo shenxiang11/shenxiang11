@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)](https://cn.bing.com/th?id=OHR.SonoranSpring_EN-US9207877073_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)](https://cn.bing.com/th?id=OHR.JediMonastery_EN-US9398447907_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.05%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.32%
 
-> ⏰ 最后更新于 2024年05月04日 06:30:36
+> ⏰ 最后更新于 2024年05月05日 06:30:50
 
 
 ---
