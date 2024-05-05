@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)](https://cn.bing.com/th?id=OHR.JediMonastery_EN-US9398447907_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.SanMiguelAllende_EN-US9621237021_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.32%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.59%
 
-> ⏰ 最后更新于 2024年05月05日 06:30:50
+> ⏰ 最后更新于 2024年05月06日 06:30:47
 
 
 ---
