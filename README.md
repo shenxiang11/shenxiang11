@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.SanMiguelAllende_EN-US9621237021_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Roaches, Peak District, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_EN-US9733115206_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.59%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.87%
 
-> ⏰ 最后更新于 2024年05月06日 06:30:47
+> ⏰ 最后更新于 2024年05月07日 06:30:51
 
 
 ---
