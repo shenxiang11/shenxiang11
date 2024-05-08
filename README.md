@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)](https://cn.bing.com/th?id=OHR.LittleDuckling_EN-US0447954247_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![View of Château d&#39;If in the port of Marseille, France (© Sergii Figurnyi/Alamy)](https://cn.bing.com/th?id=OHR.PortMarseille_EN-US0558123049_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.14%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.42%
 
-> ⏰ 最后更新于 2024年05月08日 06:30:47
+> ⏰ 最后更新于 2024年05月09日 06:30:43
 
 
 ---
