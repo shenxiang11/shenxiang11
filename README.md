@@ -1,13 +1,13 @@
 ## 每日一图
 
-![View of Château d&#39;If in the port of Marseille, France (© Sergii Figurnyi/Alamy)](https://cn.bing.com/th?id=OHR.PortMarseille_EN-US0558123049_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.42%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.69%
 
-> ⏰ 最后更新于 2024年05月09日 06:30:43
+> ⏰ 最后更新于 2024年05月10日 06:30:54
 
 
 ---
