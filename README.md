@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_EN-US0805176947_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.69%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.96%
 
-> ⏰ 最后更新于 2024年05月10日 06:30:54
+> ⏰ 最后更新于 2024年05月11日 06:30:50
 
 
 ---
