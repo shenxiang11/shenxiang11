@@ -1,13 +1,13 @@
 ## 每日一图
 
-![An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_EN-US0916417036_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Guanaco mother and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacoMother_EN-US1023542218_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.24%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.51%
 
-> ⏰ 最后更新于 2024年05月12日 06:30:41
+> ⏰ 最后更新于 2024年05月13日 06:30:46
 
 
 ---
