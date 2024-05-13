@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Guanaco mother and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacoMother_EN-US1023542218_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.51%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.79%
 
-> ⏰ 最后更新于 2024年05月13日 06:30:46
+> ⏰ 最后更新于 2024年05月14日 06:33:04
 
 
 ---
