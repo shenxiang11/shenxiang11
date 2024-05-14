@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.79%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.06%
 
-> ⏰ 最后更新于 2024年05月14日 06:33:04
+> ⏰ 最后更新于 2024年05月15日 06:31:23
 
 
 ---
