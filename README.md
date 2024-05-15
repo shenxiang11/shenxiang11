@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.06%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.34%
 
-> ⏰ 最后更新于 2024年05月15日 06:31:23
+> ⏰ 最后更新于 2024年05月16日 06:32:59
 
 
 ---
