@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![&#39;Feelings are Facts,&#39; by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.34%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.61%
 
-> ⏰ 最后更新于 2024年05月16日 06:32:59
+> ⏰ 最后更新于 2024年05月17日 06:31:22
 
 
 ---
