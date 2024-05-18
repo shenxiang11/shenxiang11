@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Blue whale skeleton in the Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.88%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.16%
 
-> ⏰ 最后更新于 2024年05月18日 06:31:09
+> ⏰ 最后更新于 2024年05月19日 06:30:49
 
 
 ---
