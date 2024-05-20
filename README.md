@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Bee tending a honeycomb (© Simun Ascic/Alamy)](https://cn.bing.com/th?id=OHR.HoneycombBee_EN-US2941694554_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.43%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.70%
 
-> ⏰ 最后更新于 2024年05月20日 06:31:30
+> ⏰ 最后更新于 2024年05月21日 06:31:40
 
 
 ---
