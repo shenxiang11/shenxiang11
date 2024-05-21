@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bee tending a honeycomb (© Simun Ascic/Alamy)](https://cn.bing.com/th?id=OHR.HoneycombBee_EN-US2941694554_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)](https://cn.bing.com/th?id=OHR.MalaysiaTea_EN-US3322214623_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.70%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.98%
 
-> ⏰ 最后更新于 2024年05月21日 06:31:40
+> ⏰ 最后更新于 2024年05月22日 06:30:44
 
 
 ---
