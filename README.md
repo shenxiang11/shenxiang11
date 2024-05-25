@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Añisclo Canyon, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_EN-US4779461538_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aït Benhaddou, Morocco (© Grant Faint/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.80%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.07%
 
-> ⏰ 最后更新于 2024年05月25日 06:30:46
+> ⏰ 最后更新于 2024年05月26日 06:30:43
 
 
 ---
