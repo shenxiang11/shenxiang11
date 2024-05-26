@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aït Benhaddou, Morocco (© Grant Faint/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.07%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.35%
 
-> ⏰ 最后更新于 2024年05月26日 06:30:43
+> ⏰ 最后更新于 2024年05月27日 06:30:41
 
 
 ---
