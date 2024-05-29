@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-US5286293282_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Eurasian otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)](https://cn.bing.com/th?id=OHR.MullOtter_EN-US5451978021_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.90%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 41.17%
 
-> ⏰ 最后更新于 2024年05月29日 06:31:04
+> ⏰ 最后更新于 2024年05月30日 06:31:45
 
 
 ---
