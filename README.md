@@ -1,13 +1,13 @@
 ## 每日一图
 
-![San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 41.99%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.27%
 
-> ⏰ 最后更新于 2024年06月02日 06:30:49
+> ⏰ 最后更新于 2024年06月03日 06:31:07
 
 
 ---
