@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.27%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.54%
 
-> ⏰ 最后更新于 2024年06月03日 06:31:07
+> ⏰ 最后更新于 2024年06月04日 06:31:40
 
 
 ---
