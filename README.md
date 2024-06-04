@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.54%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.81%
 
-> ⏰ 最后更新于 2024年06月04日 06:31:40
+> ⏰ 最后更新于 2024年06月05日 06:32:22
 
 
 ---
