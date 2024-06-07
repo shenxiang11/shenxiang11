@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.HumpbackFamily_EN-US6789097648_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.36%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.64%
 
-> ⏰ 最后更新于 2024年06月07日 06:30:59
+> ⏰ 最后更新于 2024年06月08日 06:31:38
 
 
 ---
