@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.HumpbackFamily_EN-US6789097648_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.64%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.91%
 
-> ⏰ 最后更新于 2024年06月08日 06:31:38
+> ⏰ 最后更新于 2024年06月09日 06:31:16
 
 
 ---
