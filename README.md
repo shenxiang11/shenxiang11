@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.91%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.18%
 
-> ⏰ 最后更新于 2024年06月09日 06:31:16
+> ⏰ 最后更新于 2024年06月10日 06:31:26
 
 
 ---
