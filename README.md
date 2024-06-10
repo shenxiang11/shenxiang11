@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Osaka at night, Japan (© wichianduangsri/Getty Images)](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.18%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.46%
 
-> ⏰ 最后更新于 2024年06月10日 06:31:26
+> ⏰ 最后更新于 2024年06月11日 06:32:03
 
 
 ---
