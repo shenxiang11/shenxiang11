@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_EN-US7213876995_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.73%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.01%
 
-> ⏰ 最后更新于 2024年06月12日 06:30:48
+> ⏰ 最后更新于 2024年06月13日 06:31:25
 
 
 ---
