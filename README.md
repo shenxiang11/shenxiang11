@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Flag display at the Washington Monument, Washington, DC  (© tristanbnz/Adobe Stock)](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.28%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.55%
 
-> ⏰ 最后更新于 2024年06月14日 06:31:15
+> ⏰ 最后更新于 2024年06月15日 06:31:19
 
 
 ---
