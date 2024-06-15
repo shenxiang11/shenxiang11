@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Flag display at the Washington Monument, Washington, DC  (© tristanbnz/Adobe Stock)](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.55%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.83%
 
-> ⏰ 最后更新于 2024年06月15日 06:31:19
+> ⏰ 最后更新于 2024年06月16日 06:31:28
 
 
 ---
