@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)](https://cn.bing.com/th?id=OHR.LupinIceland_EN-US0093427185_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Jacob Lawrence&#39;s mosaic &#39;Community,&#39; Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.65%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.92%
 
-> ⏰ 最后更新于 2024年06月19日 06:31:23
+> ⏰ 最后更新于 2024年06月20日 06:31:15
 
 
 ---
