@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Jacob Lawrence&#39;s mosaic &#39;Community,&#39; Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.92%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.20%
 
-> ⏰ 最后更新于 2024年06月20日 06:31:15
+> ⏰ 最后更新于 2024年06月21日 06:31:16
 
 
 ---
