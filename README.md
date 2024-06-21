@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.20%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.47%
 
-> ⏰ 最后更新于 2024年06月21日 06:31:16
+> ⏰ 最后更新于 2024年06月22日 06:31:05
 
 
 ---
