@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.02%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.29%
 
-> ⏰ 最后更新于 2024年06月24日 06:30:47
+> ⏰ 最后更新于 2024年06月25日 06:31:40
 
 
 ---
