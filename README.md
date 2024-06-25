@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.FireWave_EN-US1154414797_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.29%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.57%
 
-> ⏰ 最后更新于 2024年06月25日 06:31:40
+> ⏰ 最后更新于 2024年06月26日 06:30:59
 
 
 ---
