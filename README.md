@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)](https://cn.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.12%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.39%
 
-> ⏰ 最后更新于 2024年06月28日 06:30:58
+> ⏰ 最后更新于 2024年06月29日 06:32:17
 
 
 ---
