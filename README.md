@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)](https://cn.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TourCorsica_EN-US3437831281_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.39%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.66%
 
-> ⏰ 最后更新于 2024年06月29日 06:32:17
+> ⏰ 最后更新于 2024年06月30日 06:31:34
 
 
 ---
