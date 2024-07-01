@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.94%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.21%
 
-> ⏰ 最后更新于 2024年07月01日 06:30:49
+> ⏰ 最后更新于 2024年07月02日 06:31:30
 
 
 ---
