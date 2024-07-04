@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Meerkat family (© anetapics/Shutterstock)](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fireworks over the Hudson River on the Fourth of July, New York (© New York on Air/Shutterstock)](https://cn.bing.com/th?id=OHR.HudsonFireworks_EN-US4304057228_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.76%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 51.03%
 
-> ⏰ 最后更新于 2024年07月04日 06:31:45
+> ⏰ 最后更新于 2024年07月05日 06:31:39
 
 
 ---
