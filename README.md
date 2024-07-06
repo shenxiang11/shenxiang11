@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)](https://cn.bing.com/th?id=OHR.NoahBeach_EN-US4383778312_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)](https://cn.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 51.31%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 51.58%
 
-> ⏰ 最后更新于 2024年07月06日 06:31:46
+> ⏰ 最后更新于 2024年07月07日 06:31:12
 
 
 ---
