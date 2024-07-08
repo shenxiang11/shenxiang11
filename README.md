@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Blueberries growing in the wild (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 51.86%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.13%
 
-> ⏰ 最后更新于 2024年07月08日 06:31:13
+> ⏰ 最后更新于 2024年07月09日 06:31:32
 
 
 ---
