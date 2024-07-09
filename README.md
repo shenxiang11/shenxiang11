@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Blueberries growing in the wild (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.13%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.40%
 
-> ⏰ 最后更新于 2024年07月09日 06:31:32
+> ⏰ 最后更新于 2024年07月10日 06:31:56
 
 
 ---
