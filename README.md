@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.95%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.23%
 
-> ⏰ 最后更新于 2024年07月12日 06:31:27
+> ⏰ 最后更新于 2024年07月13日 06:31:54
 
 
 ---
