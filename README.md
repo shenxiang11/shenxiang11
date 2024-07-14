@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.50%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.77%
 
-> ⏰ 最后更新于 2024年07月14日 06:31:11
+> ⏰ 最后更新于 2024年07月15日 06:31:51
 
 
 ---
