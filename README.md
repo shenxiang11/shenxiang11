@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)](https://cn.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.77%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.05%
 
-> ⏰ 最后更新于 2024年07月15日 06:31:51
+> ⏰ 最后更新于 2024年07月16日 06:31:25
 
 
 ---
