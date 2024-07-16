@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)](https://cn.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.05%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.32%
 
-> ⏰ 最后更新于 2024年07月16日 06:31:25
+> ⏰ 最后更新于 2024年07月17日 06:32:08
 
 
 ---
