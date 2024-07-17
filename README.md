@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://cn.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.32%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.60%
 
-> ⏰ 最后更新于 2024年07月17日 06:32:08
+> ⏰ 最后更新于 2024年07月18日 06:32:25
 
 
 ---
