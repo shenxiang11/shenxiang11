@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.60%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.87%
 
-> ⏰ 最后更新于 2024年07月18日 06:32:25
+> ⏰ 最后更新于 2024年07月19日 06:31:50
 
 
 ---
