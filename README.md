@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.87%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.14%
 
-> ⏰ 最后更新于 2024年07月19日 06:31:50
+> ⏰ 最后更新于 2024年07月20日 06:32:27
 
 
 ---
