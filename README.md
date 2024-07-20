@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The moon (© Victor Blum/Getty Images)](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.14%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.42%
 
-> ⏰ 最后更新于 2024年07月20日 06:32:27
+> ⏰ 最后更新于 2024年07月21日 06:31:11
 
 
 ---
