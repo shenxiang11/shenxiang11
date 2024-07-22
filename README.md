@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)](https://cn.bing.com/th?id=OHR.ZanzibarBoats_EN-US9009404410_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.69%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.96%
 
-> ⏰ 最后更新于 2024年07月22日 06:30:56
+> ⏰ 最后更新于 2024年07月23日 06:31:34
 
 
 ---
