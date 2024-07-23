@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.96%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.24%
 
-> ⏰ 最后更新于 2024年07月23日 06:31:34
+> ⏰ 最后更新于 2024年07月24日 06:31:33
 
 
 ---
