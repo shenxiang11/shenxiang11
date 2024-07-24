@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.24%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.51%
 
-> ⏰ 最后更新于 2024年07月24日 06:31:33
+> ⏰ 最后更新于 2024年07月25日 06:31:39
 
 
 ---
