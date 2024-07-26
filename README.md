@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.PontNeuf_EN-US5735328254_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.79%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.06%
 
-> ⏰ 最后更新于 2024年07月26日 06:31:36
+> ⏰ 最后更新于 2024年07月27日 06:31:40
 
 
 ---
