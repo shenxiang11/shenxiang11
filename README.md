@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.PontNeuf_EN-US5735328254_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.06%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.33%
 
-> ⏰ 最后更新于 2024年07月27日 06:31:40
+> ⏰ 最后更新于 2024年07月28日 06:30:45
 
 
 ---
