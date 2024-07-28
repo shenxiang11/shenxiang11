@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.33%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.61%
 
-> ⏰ 最后更新于 2024年07月28日 06:30:45
+> ⏰ 最后更新于 2024年07月29日 06:31:10
 
 
 ---
