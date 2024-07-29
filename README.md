@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)](https://cn.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.61%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.88%
 
-> ⏰ 最后更新于 2024年07月29日 06:31:10
+> ⏰ 最后更新于 2024年07月30日 06:33:27
 
 
 ---
