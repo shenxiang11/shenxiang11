@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.88%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.16%
 
-> ⏰ 最后更新于 2024年07月30日 06:33:27
+> ⏰ 最后更新于 2024年07月31日 06:30:47
 
 
 ---
