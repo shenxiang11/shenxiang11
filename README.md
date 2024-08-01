@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.43%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.70%
 
-> ⏰ 最后更新于 2024年08月01日 06:31:35
+> ⏰ 最后更新于 2024年08月02日 06:31:24
 
 
 ---
