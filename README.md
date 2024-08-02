@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.70%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.98%
 
-> ⏰ 最后更新于 2024年08月02日 06:31:24
+> ⏰ 最后更新于 2024年08月03日 06:31:48
 
 
 ---
