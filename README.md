@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.98%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.25%
 
-> ⏰ 最后更新于 2024年08月03日 06:31:48
+> ⏰ 最后更新于 2024年08月04日 06:30:53
 
 
 ---
