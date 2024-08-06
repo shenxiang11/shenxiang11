@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.80%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.07%
 
-> ⏰ 最后更新于 2024年08月06日 06:31:55
+> ⏰ 最后更新于 2024年08月07日 06:32:11
 
 
 ---
