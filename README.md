@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.07%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.35%
 
-> ⏰ 最后更新于 2024年08月07日 06:32:11
+> ⏰ 最后更新于 2024年08月08日 06:31:56
 
 
 ---
