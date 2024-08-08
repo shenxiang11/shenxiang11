@@ -1,13 +1,13 @@
 ## 每日一图
 
-![St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.35%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.62%
 
-> ⏰ 最后更新于 2024年08月08日 06:31:56
+> ⏰ 最后更新于 2024年08月09日 06:32:09
 
 
 ---
