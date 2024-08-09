@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.62%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.90%
 
-> ⏰ 最后更新于 2024年08月09日 06:32:09
+> ⏰ 最后更新于 2024年08月10日 06:32:34
 
 
 ---
