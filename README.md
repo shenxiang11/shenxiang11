@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.17%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.44%
 
-> ⏰ 最后更新于 2024年08月11日 06:31:40
+> ⏰ 最后更新于 2024年08月12日 06:32:14
 
 
 ---
