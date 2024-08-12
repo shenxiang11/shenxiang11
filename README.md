@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.44%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.72%
 
-> ⏰ 最后更新于 2024年08月12日 06:32:14
+> ⏰ 最后更新于 2024年08月13日 06:32:28
 
 
 ---
