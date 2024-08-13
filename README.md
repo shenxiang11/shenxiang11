@@ -1,13 +1,13 @@
 ## 每日一图
 
-![African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.72%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.99%
 
-> ⏰ 最后更新于 2024年08月13日 06:32:28
+> ⏰ 最后更新于 2024年08月14日 06:31:53
 
 
 ---
