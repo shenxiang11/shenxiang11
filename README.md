@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.99%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.27%
 
-> ⏰ 最后更新于 2024年08月14日 06:31:53
+> ⏰ 最后更新于 2024年08月15日 06:32:40
 
 
 ---
