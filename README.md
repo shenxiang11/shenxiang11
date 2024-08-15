@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.27%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.54%
 
-> ⏰ 最后更新于 2024年08月15日 06:32:40
+> ⏰ 最后更新于 2024年08月16日 06:32:13
 
 
 ---
