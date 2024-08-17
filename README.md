@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_EN-US9463845683_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.81%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.09%
 
-> ⏰ 最后更新于 2024年08月17日 06:32:04
+> ⏰ 最后更新于 2024年08月18日 06:31:20
 
 
 ---
