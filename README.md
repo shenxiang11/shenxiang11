@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Museum of Flight, Seattle, Washington (© George Rose/Getty Images)](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.36%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.64%
 
-> ⏰ 最后更新于 2024年08月19日 06:31:28
+> ⏰ 最后更新于 2024年08月20日 06:32:59
 
 
 ---
