@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Museum of Flight, Seattle, Washington (© George Rose/Getty Images)](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.64%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.91%
 
-> ⏰ 最后更新于 2024年08月20日 06:32:59
+> ⏰ 最后更新于 2024年08月21日 06:31:17
 
 
 ---
