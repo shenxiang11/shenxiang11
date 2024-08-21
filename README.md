@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.91%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.18%
 
-> ⏰ 最后更新于 2024年08月21日 06:31:17
+> ⏰ 最后更新于 2024年08月22日 06:31:57
 
 
 ---
