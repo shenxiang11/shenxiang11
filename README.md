@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.18%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.46%
 
-> ⏰ 最后更新于 2024年08月22日 06:31:57
+> ⏰ 最后更新于 2024年08月23日 06:33:26
 
 
 ---
