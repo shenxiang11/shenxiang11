@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.46%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.73%
 
-> ⏰ 最后更新于 2024年08月23日 06:33:26
+> ⏰ 最后更新于 2024年08月24日 06:32:01
 
 
 ---
