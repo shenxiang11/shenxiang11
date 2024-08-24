@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.73%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.01%
 
-> ⏰ 最后更新于 2024年08月24日 06:32:01
+> ⏰ 最后更新于 2024年08月25日 06:31:04
 
 
 ---
