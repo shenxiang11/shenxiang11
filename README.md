@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.28%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.55%
 
-> ⏰ 最后更新于 2024年08月26日 06:32:23
+> ⏰ 最后更新于 2024年08月27日 06:32:26
 
 
 ---
