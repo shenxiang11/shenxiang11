@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.55%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.83%
 
-> ⏰ 最后更新于 2024年08月27日 06:32:26
+> ⏰ 最后更新于 2024年08月28日 06:33:47
 
 
 ---
