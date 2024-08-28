@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Montmartre and Sacre Cœur, Paris, France (© Tuul &amp; Bruno Morandi/Getty Images)](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.83%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.10%
 
-> ⏰ 最后更新于 2024年08月28日 06:33:47
+> ⏰ 最后更新于 2024年08月29日 06:32:05
 
 
 ---
