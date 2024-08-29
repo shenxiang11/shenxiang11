@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Montmartre and Sacre Cœur, Paris, France (© Tuul &amp; Bruno Morandi/Getty Images)](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.10%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.38%
 
-> ⏰ 最后更新于 2024年08月29日 06:32:05
+> ⏰ 最后更新于 2024年08月30日 06:32:58
 
 
 ---
