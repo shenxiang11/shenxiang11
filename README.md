@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WhaleSharkDay_EN-US8979838463_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.38%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.65%
 
-> ⏰ 最后更新于 2024年08月30日 06:32:58
+> ⏰ 最后更新于 2024年08月31日 06:32:40
 
 
 ---
