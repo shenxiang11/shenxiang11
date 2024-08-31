@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WhaleSharkDay_EN-US8979838463_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.65%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.92%
 
-> ⏰ 最后更新于 2024年08月31日 06:32:40
+> ⏰ 最后更新于 2024年09月01日 06:32:37
 
 
 ---
