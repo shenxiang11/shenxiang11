@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.92%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.20%
 
-> ⏰ 最后更新于 2024年09月01日 06:32:37
+> ⏰ 最后更新于 2024年09月02日 06:32:51
 
 
 ---
