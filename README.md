@@ -1,13 +1,13 @@
 ## 每日一图
 
-![River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![&#39;Power of the Titans&#39; mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.20%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.47%
 
-> ⏰ 最后更新于 2024年09月02日 06:32:51
+> ⏰ 最后更新于 2024年09月03日 06:32:38
 
 
 ---
