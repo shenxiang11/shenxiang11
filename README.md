@@ -1,13 +1,13 @@
 ## 每日一图
 
-![&#39;Power of the Titans&#39; mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.47%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.75%
 
-> ⏰ 最后更新于 2024年09月03日 06:32:38
+> ⏰ 最后更新于 2024年09月04日 06:33:18
 
 
 ---
