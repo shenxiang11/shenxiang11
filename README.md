@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.75%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.02%
 
-> ⏰ 最后更新于 2024年09月04日 06:33:18
+> ⏰ 最后更新于 2024年09月05日 06:32:30
 
 
 ---
