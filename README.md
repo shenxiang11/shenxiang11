@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.02%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.29%
 
-> ⏰ 最后更新于 2024年09月05日 06:32:30
+> ⏰ 最后更新于 2024年09月06日 06:32:39
 
 
 ---
