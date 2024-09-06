@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.GlenariffPark_EN-US3914128007_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.29%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.57%
 
-> ⏰ 最后更新于 2024年09月06日 06:32:39
+> ⏰ 最后更新于 2024年09月07日 06:33:12
 
 
 ---
