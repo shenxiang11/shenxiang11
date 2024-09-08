@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Anna&#39;s hummingbird, Santa Cruz, California (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy)](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.84%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.12%
 
-> ⏰ 最后更新于 2024年09月08日 06:33:09
+> ⏰ 最后更新于 2024年09月09日 06:32:23
 
 
 ---
