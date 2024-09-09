@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy)](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.IguazuRainbow_EN-US4361499337_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.12%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.39%
 
-> ⏰ 最后更新于 2024年09月09日 06:32:23
+> ⏰ 最后更新于 2024年09月10日 06:32:46
 
 
 ---
