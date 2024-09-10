@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.IguazuRainbow_EN-US4361499337_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.39%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.66%
 
-> ⏰ 最后更新于 2024年09月10日 06:32:46
+> ⏰ 最后更新于 2024年09月11日 06:32:43
 
 
 ---
