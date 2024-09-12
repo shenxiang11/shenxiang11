@@ -1,13 +1,13 @@
 ## 每日一图
 
-![National September 11 Memorial &amp; Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.94%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.21%
 
-> ⏰ 最后更新于 2024年09月12日 06:32:41
+> ⏰ 最后更新于 2024年09月13日 06:33:15
 
 
 ---
