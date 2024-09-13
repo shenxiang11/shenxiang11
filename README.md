@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.21%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.49%
 
-> ⏰ 最后更新于 2024年09月13日 06:33:15
+> ⏰ 最后更新于 2024年09月14日 06:33:06
 
 
 ---
