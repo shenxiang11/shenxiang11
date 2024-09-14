@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.49%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.76%
 
-> ⏰ 最后更新于 2024年09月14日 06:33:06
+> ⏰ 最后更新于 2024年09月15日 06:32:56
 
 
 ---
