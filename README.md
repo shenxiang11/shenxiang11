@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.76%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.03%
 
-> ⏰ 最后更新于 2024年09月15日 06:32:56
+> ⏰ 最后更新于 2024年09月16日 06:32:59
 
 
 ---
