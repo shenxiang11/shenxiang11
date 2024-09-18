@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.58%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.86%
 
-> ⏰ 最后更新于 2024年09月18日 06:32:38
+> ⏰ 最后更新于 2024年09月19日 06:33:00
 
 
 ---
