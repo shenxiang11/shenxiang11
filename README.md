@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.86%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.13%
 
-> ⏰ 最后更新于 2024年09月19日 06:33:00
+> ⏰ 最后更新于 2024年09月20日 06:32:54
 
 
 ---
