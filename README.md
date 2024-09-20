@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.13%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.40%
 
-> ⏰ 最后更新于 2024年09月20日 06:32:54
+> ⏰ 最后更新于 2024年09月21日 06:34:01
 
 
 ---
