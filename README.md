@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.40%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.68%
 
-> ⏰ 最后更新于 2024年09月21日 06:34:01
+> ⏰ 最后更新于 2024年09月22日 06:32:23
 
 
 ---
