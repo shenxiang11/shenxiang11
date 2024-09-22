@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.68%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.95%
 
-> ⏰ 最后更新于 2024年09月22日 06:32:23
+> ⏰ 最后更新于 2024年09月23日 06:32:53
 
 
 ---
