@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.95%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.23%
 
-> ⏰ 最后更新于 2024年09月23日 06:32:53
+> ⏰ 最后更新于 2024年09月24日 06:33:46
 
 
 ---
