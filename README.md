@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.23%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.50%
 
-> ⏰ 最后更新于 2024年09月24日 06:33:46
+> ⏰ 最后更新于 2024年09月25日 06:33:30
 
 
 ---
