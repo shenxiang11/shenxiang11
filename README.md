@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.50%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.77%
 
-> ⏰ 最后更新于 2024年09月25日 06:33:30
+> ⏰ 最后更新于 2024年09月26日 06:33:31
 
 
 ---
