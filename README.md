@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.77%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.05%
 
-> ⏰ 最后更新于 2024年09月26日 06:33:31
+> ⏰ 最后更新于 2024年09月27日 06:33:16
 
 
 ---
