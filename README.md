@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.05%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.32%
 
-> ⏰ 最后更新于 2024年09月27日 06:33:16
+> ⏰ 最后更新于 2024年09月28日 06:33:25
 
 
 ---
