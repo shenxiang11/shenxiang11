@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.60%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.87%
 
-> ⏰ 最后更新于 2024年09月29日 06:32:49
+> ⏰ 最后更新于 2024年09月30日 06:32:34
 
 
 ---
