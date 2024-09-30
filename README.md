@@ -1,13 +1,13 @@
 ## 每日一图
 
-![West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)](https://cn.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.87%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.14%
 
-> ⏰ 最后更新于 2024年09月30日 06:32:34
+> ⏰ 最后更新于 2024年10月01日 06:33:22
 
 
 ---
