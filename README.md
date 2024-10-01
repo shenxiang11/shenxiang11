@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)](https://cn.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.14%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.42%
 
-> ⏰ 最后更新于 2024年10月01日 06:33:22
+> ⏰ 最后更新于 2024年10月02日 06:33:33
 
 
 ---
