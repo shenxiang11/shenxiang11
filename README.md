@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.42%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.69%
 
-> ⏰ 最后更新于 2024年10月02日 06:33:33
+> ⏰ 最后更新于 2024年10月03日 06:33:54
 
 
 ---
