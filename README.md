@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)](https://cn.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Jupiter&#39;s icy moon Europa (© NASA/JPL-Caltech/SETI Institute)](https://cn.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.97%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.24%
 
-> ⏰ 最后更新于 2024年10月04日 06:33:41
+> ⏰ 最后更新于 2024年10月05日 06:33:07
 
 
 ---
