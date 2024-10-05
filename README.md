@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Jupiter&#39;s icy moon Europa (© NASA/JPL-Caltech/SETI Institute)](https://cn.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.24%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.51%
 
-> ⏰ 最后更新于 2024年10月05日 06:33:07
+> ⏰ 最后更新于 2024年10月06日 06:33:12
 
 
 ---
