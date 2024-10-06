@@ -1,13 +1,13 @@
 ## 每日一图
 
-![African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.51%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.79%
 
-> ⏰ 最后更新于 2024年10月06日 06:33:12
+> ⏰ 最后更新于 2024年10月07日 06:32:49
 
 
 ---
