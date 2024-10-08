@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.06%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.34%
 
-> ⏰ 最后更新于 2024年10月08日 06:33:58
+> ⏰ 最后更新于 2024年10月09日 06:33:35
 
 
 ---
