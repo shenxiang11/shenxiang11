@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aspens in the White River National Forest, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.34%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.61%
 
-> ⏰ 最后更新于 2024年10月09日 06:33:35
+> ⏰ 最后更新于 2024年10月10日 06:33:21
 
 
 ---
