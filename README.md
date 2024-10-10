@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aspens in the White River National Forest, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.61%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.88%
 
-> ⏰ 最后更新于 2024年10月10日 06:33:21
+> ⏰ 最后更新于 2024年10月11日 06:34:07
 
 
 ---
