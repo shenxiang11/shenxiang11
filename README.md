@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)](https://cn.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.88%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.16%
 
-> ⏰ 最后更新于 2024年10月11日 06:34:07
+> ⏰ 最后更新于 2024年10月12日 06:34:00
 
 
 ---
