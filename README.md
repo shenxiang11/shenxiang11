@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.16%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.43%
 
-> ⏰ 最后更新于 2024年10月12日 06:34:00
+> ⏰ 最后更新于 2024年10月13日 06:33:15
 
 
 ---
