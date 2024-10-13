@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.43%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.70%
 
-> ⏰ 最后更新于 2024年10月13日 06:33:15
+> ⏰ 最后更新于 2024年10月14日 06:32:41
 
 
 ---
