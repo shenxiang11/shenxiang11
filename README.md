@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.80%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.07%
 
-> ⏰ 最后更新于 2024年10月18日 06:33:38
+> ⏰ 最后更新于 2024年10月19日 06:33:15
 
 
 ---
