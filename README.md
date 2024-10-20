@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.35%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.62%
 
-> ⏰ 最后更新于 2024年10月20日 06:34:11
+> ⏰ 最后更新于 2024年10月21日 06:33:14
 
 
 ---
