@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cypress trees in George L. Smith State Park, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.62%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.90%
 
-> ⏰ 最后更新于 2024年10月21日 06:33:14
+> ⏰ 最后更新于 2024年10月22日 06:33:24
 
 
 ---
