@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cypress trees in George L. Smith State Park, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)](https://cn.bing.com/th?id=OHR.MonsterDoor_EN-US2973387472_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.90%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.17%
 
-> ⏰ 最后更新于 2024年10月22日 06:33:24
+> ⏰ 最后更新于 2024年10月23日 06:33:40
 
 
 ---
