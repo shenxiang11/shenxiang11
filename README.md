@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)](https://cn.bing.com/th?id=OHR.MonsterDoor_EN-US2973387472_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.17%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.44%
 
-> ⏰ 最后更新于 2024年10月23日 06:33:40
+> ⏰ 最后更新于 2024年10月24日 06:33:49
 
 
 ---
