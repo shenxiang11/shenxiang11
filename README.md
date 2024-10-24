@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Bodie State Historic Park, Mono County, California (© Julien McRoberts/Tetra Images, LLC/Alamy)](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.44%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.72%
 
-> ⏰ 最后更新于 2024年10月24日 06:33:49
+> ⏰ 最后更新于 2024年10月25日 06:33:20
 
 
 ---
