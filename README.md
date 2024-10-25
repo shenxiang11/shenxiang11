@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bodie State Historic Park, Mono County, California (© Julien McRoberts/Tetra Images, LLC/Alamy)](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.72%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.99%
 
-> ⏰ 最后更新于 2024年10月25日 06:33:20
+> ⏰ 最后更新于 2024年10月26日 06:33:19
 
 
 ---
