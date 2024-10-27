@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.27%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.54%
 
-> ⏰ 最后更新于 2024年10月27日 06:32:55
+> ⏰ 最后更新于 2024年10月28日 06:33:18
 
 
 ---
