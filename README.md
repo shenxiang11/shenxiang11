@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.54%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.81%
 
-> ⏰ 最后更新于 2024年10月28日 06:33:18
+> ⏰ 最后更新于 2024年10月29日 06:33:38
 
 
 ---
