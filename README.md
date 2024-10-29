@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Great horned owl (© Mark Newman/Getty Images)](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.81%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.09%
 
-> ⏰ 最后更新于 2024年10月29日 06:33:38
+> ⏰ 最后更新于 2024年10月30日 06:33:36
 
 
 ---
