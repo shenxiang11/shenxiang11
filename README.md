@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Great horned owl (© Mark Newman/Getty Images)](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_EN-US3906244993_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.09%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.36%
 
-> ⏰ 最后更新于 2024年10月30日 06:33:36
+> ⏰ 最后更新于 2024年10月31日 06:33:32
 
 
 ---
