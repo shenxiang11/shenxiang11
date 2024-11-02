@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Pueblo ruins, Hovenweep National Monument, Utah (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.91%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.18%
 
-> ⏰ 最后更新于 2024年11月02日 06:33:20
+> ⏰ 最后更新于 2024年11月03日 06:33:03
 
 
 ---
