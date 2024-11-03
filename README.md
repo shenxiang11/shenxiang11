@@ -1,13 +1,13 @@
 ## 每日一图
 
-![American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.18%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.46%
 
-> ⏰ 最后更新于 2024年11月03日 06:33:03
+> ⏰ 最后更新于 2024年11月04日 06:33:29
 
 
 ---
