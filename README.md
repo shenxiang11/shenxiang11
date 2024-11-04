@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.46%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.73%
 
-> ⏰ 最后更新于 2024年11月04日 06:33:29
+> ⏰ 最后更新于 2024年11月05日 06:31:43
 
 
 ---
