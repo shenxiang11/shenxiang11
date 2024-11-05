@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.73%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.01%
 
-> ⏰ 最后更新于 2024年11月05日 06:31:43
+> ⏰ 最后更新于 2024年11月06日 06:33:25
 
 
 ---
