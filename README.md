@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.01%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.28%
 
-> ⏰ 最后更新于 2024年11月06日 06:33:25
+> ⏰ 最后更新于 2024年11月07日 06:33:39
 
 
 ---
