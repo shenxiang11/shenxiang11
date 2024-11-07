@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy)](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.28%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.55%
 
-> ⏰ 最后更新于 2024年11月07日 06:33:39
+> ⏰ 最后更新于 2024年11月08日 06:33:02
 
 
 ---
