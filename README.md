@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy)](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.55%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.83%
 
-> ⏰ 最后更新于 2024年11月08日 06:33:02
+> ⏰ 最后更新于 2024年11月09日 06:32:59
 
 
 ---
