@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.83%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 86.10%
 
-> ⏰ 最后更新于 2024年11月09日 06:32:59
+> ⏰ 最后更新于 2024年11月10日 06:31:57
 
 
 ---
