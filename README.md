@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 86.10%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 86.38%
 
-> ⏰ 最后更新于 2024年11月10日 06:31:57
+> ⏰ 最后更新于 2024年11月11日 06:32:23
 
 
 ---
