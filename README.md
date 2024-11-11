@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 86.38%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 86.65%
 
-> ⏰ 最后更新于 2024年11月11日 06:32:23
+> ⏰ 最后更新于 2024年11月12日 06:32:45
 
 
 ---
