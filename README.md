@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 86.92%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.20%
 
-> ⏰ 最后更新于 2024年11月13日 06:33:09
+> ⏰ 最后更新于 2024年11月14日 06:33:26
 
 
 ---
