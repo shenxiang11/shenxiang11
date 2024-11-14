@@ -1,13 +1,13 @@
 ## 每日一图
 
-![California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.20%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.47%
 
-> ⏰ 最后更新于 2024年11月14日 06:33:26
+> ⏰ 最后更新于 2024年11月15日 06:33:55
 
 
 ---
