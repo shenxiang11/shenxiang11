@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.47%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.75%
 
-> ⏰ 最后更新于 2024年11月15日 06:33:55
+> ⏰ 最后更新于 2024年11月16日 06:35:07
 
 
 ---
