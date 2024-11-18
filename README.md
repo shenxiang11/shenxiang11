@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 88.29%
+今年已经过去：████████████████████████████████████████████░░░░░░ 88.57%
 
-> ⏰ 最后更新于 2024年11月18日 06:33:33
+> ⏰ 最后更新于 2024年11月19日 06:34:06
 
 
 ---
