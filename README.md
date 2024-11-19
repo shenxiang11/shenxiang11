@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 88.57%
+今年已经过去：████████████████████████████████████████████░░░░░░ 88.84%
 
-> ⏰ 最后更新于 2024年11月19日 06:34:06
+> ⏰ 最后更新于 2024年11月20日 06:33:57
 
 
 ---
