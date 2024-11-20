@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Giant land art painting &#39;Beyond Crisis&#39; by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 88.84%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.12%
 
-> ⏰ 最后更新于 2024年11月20日 06:33:57
+> ⏰ 最后更新于 2024年11月21日 06:34:10
 
 
 ---
