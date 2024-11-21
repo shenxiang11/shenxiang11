@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Giant land art painting &#39;Beyond Crisis&#39; by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.12%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.39%
 
-> ⏰ 最后更新于 2024年11月21日 06:34:10
+> ⏰ 最后更新于 2024年11月22日 06:34:07
 
 
 ---
