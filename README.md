@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.39%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.66%
 
-> ⏰ 最后更新于 2024年11月22日 06:34:07
+> ⏰ 最后更新于 2024年11月23日 06:34:46
 
 
 ---
