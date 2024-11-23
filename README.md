@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.66%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.94%
 
-> ⏰ 最后更新于 2024年11月23日 06:34:46
+> ⏰ 最后更新于 2024年11月24日 06:34:08
 
 
 ---
