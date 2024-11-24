@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.94%
+今年已经过去：█████████████████████████████████████████████░░░░░ 90.21%
 
-> ⏰ 最后更新于 2024年11月24日 06:34:08
+> ⏰ 最后更新于 2024年11月25日 06:33:19
 
 
 ---
