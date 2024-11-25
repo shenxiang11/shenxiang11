@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 90.21%
+今年已经过去：█████████████████████████████████████████████░░░░░ 90.49%
 
-> ⏰ 最后更新于 2024年11月25日 06:33:19
+> ⏰ 最后更新于 2024年11月26日 06:33:26
 
 
 ---
