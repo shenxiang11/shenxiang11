@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Olive grove, Valle d&#39;Itria, Puglia, Italy (© Massimo Santi/Shutterstock)](https://cn.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 90.49%
+今年已经过去：█████████████████████████████████████████████░░░░░ 90.76%
 
-> ⏰ 最后更新于 2024年11月26日 06:33:26
+> ⏰ 最后更新于 2024年11月27日 06:34:27
 
 
 ---
