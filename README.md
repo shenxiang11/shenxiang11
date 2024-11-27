@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Olive grove, Valle d&#39;Itria, Puglia, Italy (© Massimo Santi/Shutterstock)](https://cn.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tombeau du Géant (Giant&#39;s Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)](https://cn.bing.com/th?id=OHR.SemoisRiver_EN-US6047540380_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 90.76%
+今年已经过去：█████████████████████████████████████████████░░░░░ 91.03%
 
-> ⏰ 最后更新于 2024年11月27日 06:34:27
+> ⏰ 最后更新于 2024年11月28日 06:34:21
 
 
 ---
