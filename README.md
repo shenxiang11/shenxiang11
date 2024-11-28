@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tombeau du Géant (Giant&#39;s Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)](https://cn.bing.com/th?id=OHR.SemoisRiver_EN-US6047540380_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wild turkeys, New York (© John Cancalosi/Alamy)](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 91.03%
+今年已经过去：█████████████████████████████████████████████░░░░░ 91.31%
 
-> ⏰ 最后更新于 2024年11月28日 06:34:21
+> ⏰ 最后更新于 2024年11月29日 06:34:08
 
 
 ---
