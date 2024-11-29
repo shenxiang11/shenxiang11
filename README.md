@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wild turkeys, New York (© John Cancalosi/Alamy)](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 91.31%
+今年已经过去：█████████████████████████████████████████████░░░░░ 91.58%
 
-> ⏰ 最后更新于 2024年11月29日 06:34:08
+> ⏰ 最后更新于 2024年11月30日 06:34:14
 
 
 ---
