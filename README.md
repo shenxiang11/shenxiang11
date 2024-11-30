@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 91.58%
+今年已经过去：█████████████████████████████████████████████░░░░░ 91.86%
 
-> ⏰ 最后更新于 2024年11月30日 06:34:14
+> ⏰ 最后更新于 2024年12月01日 06:33:36
 
 
 ---
