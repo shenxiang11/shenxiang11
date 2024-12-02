@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 92.13%
+今年已经过去：██████████████████████████████████████████████░░░░ 92.40%
 
-> ⏰ 最后更新于 2024年12月02日 06:33:53
+> ⏰ 最后更新于 2024年12月03日 06:34:31
 
 
 ---
