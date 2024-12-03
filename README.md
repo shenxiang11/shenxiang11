@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 92.40%
+今年已经过去：██████████████████████████████████████████████░░░░ 92.68%
 
-> ⏰ 最后更新于 2024年12月03日 06:34:31
+> ⏰ 最后更新于 2024年12月04日 06:34:44
 
 
 ---
