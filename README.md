@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 92.68%
+今年已经过去：██████████████████████████████████████████████░░░░ 92.95%
 
-> ⏰ 最后更新于 2024年12月04日 06:34:44
+> ⏰ 最后更新于 2024年12月05日 06:34:52
 
 
 ---
