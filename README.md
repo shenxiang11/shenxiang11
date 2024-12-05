@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)](https://cn.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 92.95%
+今年已经过去：██████████████████████████████████████████████░░░░ 93.23%
 
-> ⏰ 最后更新于 2024年12月05日 06:34:52
+> ⏰ 最后更新于 2024年12月06日 06:34:39
 
 
 ---
