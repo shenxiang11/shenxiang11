@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 93.23%
+今年已经过去：██████████████████████████████████████████████░░░░ 93.50%
 
-> ⏰ 最后更新于 2024年12月06日 06:34:39
+> ⏰ 最后更新于 2024年12月07日 06:34:32
 
 
 ---
