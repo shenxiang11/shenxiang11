@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-US7738977648_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 93.50%
+今年已经过去：██████████████████████████████████████████████░░░░ 93.77%
 
-> ⏰ 最后更新于 2024年12月07日 06:34:32
+> ⏰ 最后更新于 2024年12月08日 06:33:51
 
 
 ---
