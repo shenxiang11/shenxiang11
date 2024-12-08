@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)](https://cn.bing.com/th?id=OHR.NewHavenBridge_EN-US7922266620_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 93.77%
+今年已经过去：███████████████████████████████████████████████░░░ 94.05%
 
-> ⏰ 最后更新于 2024年12月08日 06:33:51
+> ⏰ 最后更新于 2024年12月09日 06:33:55
 
 
 ---
