@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 94.05%
+今年已经过去：███████████████████████████████████████████████░░░ 94.32%
 
-> ⏰ 最后更新于 2024年12月09日 06:33:55
+> ⏰ 最后更新于 2024年12月10日 06:34:49
 
 
 ---
