@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Cornish Coast Path covered in snow, Land&#39;s End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 94.32%
+今年已经过去：███████████████████████████████████████████████░░░ 94.60%
 
-> ⏰ 最后更新于 2024年12月10日 06:34:49
+> ⏰ 最后更新于 2024年12月11日 06:34:31
 
 
 ---
