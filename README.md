@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Cornish Coast Path covered in snow, Land&#39;s End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 94.60%
+今年已经过去：███████████████████████████████████████████████░░░ 94.87%
 
-> ⏰ 最后更新于 2024年12月11日 06:34:31
+> ⏰ 最后更新于 2024年12月12日 06:35:07
 
 
 ---
