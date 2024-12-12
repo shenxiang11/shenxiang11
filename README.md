@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 94.87%
+今年已经过去：███████████████████████████████████████████████░░░ 95.14%
 
-> ⏰ 最后更新于 2024年12月12日 06:35:07
+> ⏰ 最后更新于 2024年12月13日 06:34:44
 
 
 ---
