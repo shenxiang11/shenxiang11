@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Christmas market, St. Stephen&#39;s Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 95.14%
+今年已经过去：███████████████████████████████████████████████░░░ 95.42%
 
-> ⏰ 最后更新于 2024年12月13日 06:34:44
+> ⏰ 最后更新于 2024年12月14日 06:34:34
 
 
 ---
