@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Christmas market, St. Stephen&#39;s Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Northern hawk-owl, Canada (© pchoui/Getty Images)](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 95.42%
+今年已经过去：███████████████████████████████████████████████░░░ 95.69%
 
-> ⏰ 最后更新于 2024年12月14日 06:34:34
+> ⏰ 最后更新于 2024年12月15日 06:33:44
 
 
 ---
