@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Northern hawk-owl, Canada (© pchoui/Getty Images)](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 95.69%
+今年已经过去：███████████████████████████████████████████████░░░ 95.97%
 
-> ⏰ 最后更新于 2024年12月15日 06:33:44
+> ⏰ 最后更新于 2024年12月16日 06:33:58
 
 
 ---
