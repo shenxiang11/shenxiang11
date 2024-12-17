@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Salzburg, Austria (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Traditional red fishermen&#39;s cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 96.24%
+今年已经过去：████████████████████████████████████████████████░░ 96.51%
 
-> ⏰ 最后更新于 2024年12月17日 06:34:11
+> ⏰ 最后更新于 2024年12月18日 06:34:02
 
 
 ---
