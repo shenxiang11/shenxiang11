@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Traditional red fishermen&#39;s cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![English National Ballet performing &#39;The Nutcracker&#39; (© Caroline Holden/Alamy)](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 96.51%
+今年已经过去：████████████████████████████████████████████████░░ 96.79%
 
-> ⏰ 最后更新于 2024年12月18日 06:34:02
+> ⏰ 最后更新于 2024年12月19日 06:34:11
 
 
 ---
