@@ -1,13 +1,13 @@
 ## 每日一图
 
-![English National Ballet performing &#39;The Nutcracker&#39; (© Caroline Holden/Alamy)](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Christmas market in Sibiu, Romania (© Calin Stan/Alamy)](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 96.79%
+今年已经过去：████████████████████████████████████████████████░░ 97.06%
 
-> ⏰ 最后更新于 2024年12月19日 06:34:11
+> ⏰ 最后更新于 2024年12月20日 06:33:11
 
 
 ---
