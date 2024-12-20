@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Christmas market in Sibiu, Romania (© Calin Stan/Alamy)](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 97.06%
+今年已经过去：████████████████████████████████████████████████░░ 97.34%
 
-> ⏰ 最后更新于 2024年12月20日 06:33:11
+> ⏰ 最后更新于 2024年12月21日 06:32:53
 
 
 ---
