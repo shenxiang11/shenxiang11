@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 97.34%
+今年已经过去：████████████████████████████████████████████████░░ 97.61%
 
-> ⏰ 最后更新于 2024年12月21日 06:32:53
+> ⏰ 最后更新于 2024年12月22日 06:32:08
 
 
 ---
