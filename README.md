@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 97.61%
+今年已经过去：████████████████████████████████████████████████░░ 97.88%
 
-> ⏰ 最后更新于 2024年12月22日 06:32:08
+> ⏰ 最后更新于 2024年12月23日 06:32:11
 
 
 ---
