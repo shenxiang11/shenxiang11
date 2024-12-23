@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 97.88%
+今年已经过去：█████████████████████████████████████████████████░ 98.16%
 
-> ⏰ 最后更新于 2024年12月23日 06:32:11
+> ⏰ 最后更新于 2024年12月24日 06:32:43
 
 
 ---
