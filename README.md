@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Christmas market scene in Germany (© Cyril Gosselin/Getty Images)](https://cn.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 98.16%
+今年已经过去：█████████████████████████████████████████████████░ 98.43%
 
-> ⏰ 最后更新于 2024年12月24日 06:32:43
+> ⏰ 最后更新于 2024年12月25日 06:32:31
 
 
 ---
