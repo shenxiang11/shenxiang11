@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Christmas market scene in Germany (© Cyril Gosselin/Getty Images)](https://cn.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&amp;CO/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerTrio_EN-US1000272747_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 98.43%
+今年已经过去：█████████████████████████████████████████████████░ 98.70%
 
-> ⏰ 最后更新于 2024年12月25日 06:32:31
+> ⏰ 最后更新于 2024年12月26日 06:32:33
 
 
 ---
