@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&amp;CO/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerTrio_EN-US1000272747_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 98.70%
+今年已经过去：█████████████████████████████████████████████████░ 98.98%
 
-> ⏰ 最后更新于 2024年12月26日 06:32:33
+> ⏰ 最后更新于 2024年12月27日 06:32:37
 
 
 ---
