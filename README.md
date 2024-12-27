@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lake Bled, Slovenia (© Kesu01/Getty Images)](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 98.98%
+今年已经过去：█████████████████████████████████████████████████░ 99.25%
 
-> ⏰ 最后更新于 2024年12月27日 06:32:37
+> ⏰ 最后更新于 2024年12月28日 06:32:37
 
 
 ---
