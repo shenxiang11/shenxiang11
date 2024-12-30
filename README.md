@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 99.80%
+今年已经过去：██████████████████████████████████████████████████ 100.07%
 
-> ⏰ 最后更新于 2024年12月30日 06:32:10
+> ⏰ 最后更新于 2024年12月31日 06:32:48
 
 
 ---
