@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![New Year&#39;s Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████████ 100.07%
+今年已经过去：░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 0.07%
 
-> ⏰ 最后更新于 2024年12月31日 06:32:48
+> ⏰ 最后更新于 2025年01月01日 06:32:33
 
 
 ---
