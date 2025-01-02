@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Star trails over Ardez, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 0.35%
+今年已经过去：░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 0.62%
 
-> ⏰ 最后更新于 2025年01月02日 06:32:38
+> ⏰ 最后更新于 2025年01月03日 06:32:55
 
 
 ---
