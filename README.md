@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)](https://cn.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 1.72%
+今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.00%
 
-> ⏰ 最后更新于 2025年01月07日 06:33:11
+> ⏰ 最后更新于 2025年01月08日 06:33:25
 
 
 ---
