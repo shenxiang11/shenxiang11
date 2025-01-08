@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Snow on the Great Wall of China (© View Stock/Alamy)](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.00%
+今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.27%
 
-> ⏰ 最后更新于 2025年01月08日 06:33:25
+> ⏰ 最后更新于 2025年01月09日 06:32:59
 
 
 ---
