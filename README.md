@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Snow on the Great Wall of China (© View Stock/Alamy)](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.27%
+今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.55%
 
-> ⏰ 最后更新于 2025年01月09日 06:32:59
+> ⏰ 最后更新于 2025年01月10日 06:33:30
 
 
 ---
