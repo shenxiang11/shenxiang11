@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.82%
+今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 3.10%
 
-> ⏰ 最后更新于 2025年01月11日 06:33:30
+> ⏰ 最后更新于 2025年01月12日 06:32:23
 
 
 ---
