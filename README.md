@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)](https://cn.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 3.10%
+今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 3.37%
 
-> ⏰ 最后更新于 2025年01月12日 06:32:23
+> ⏰ 最后更新于 2025年01月13日 06:32:13
 
 
 ---
