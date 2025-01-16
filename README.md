@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 4.20%
+今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 4.47%
 
-> ⏰ 最后更新于 2025年01月16日 06:32:07
+> ⏰ 最后更新于 2025年01月17日 06:32:21
 
 
 ---
