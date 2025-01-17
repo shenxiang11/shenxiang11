@@ -1,13 +1,13 @@
 ## 每日一图
 
-![High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 4.47%
+今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 4.75%
 
-> ⏰ 最后更新于 2025年01月17日 06:32:21
+> ⏰ 最后更新于 2025年01月18日 06:32:17
 
 
 ---
