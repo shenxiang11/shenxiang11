@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 4.75%
+今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 5.02%
 
-> ⏰ 最后更新于 2025年01月18日 06:32:17
+> ⏰ 最后更新于 2025年01月19日 06:31:20
 
 
 ---
