@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Neptune&#39;s Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 5.02%
+今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 5.29%
 
-> ⏰ 最后更新于 2025年01月19日 06:31:20
+> ⏰ 最后更新于 2025年01月20日 06:32:22
 
 
 ---
