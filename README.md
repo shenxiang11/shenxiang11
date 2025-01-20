@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Neptune&#39;s Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 5.29%
+今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 5.57%
 
-> ⏰ 最后更新于 2025年01月20日 06:32:22
+> ⏰ 最后更新于 2025年01月21日 06:32:06
 
 
 ---
