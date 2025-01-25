@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Porto, Portugal (© Starcevic/Getty Images)](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 6.67%
+今年已经过去：███░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 6.94%
 
-> ⏰ 最后更新于 2025年01月25日 06:32:15
+> ⏰ 最后更新于 2025年01月26日 06:33:15
 
 
 ---
