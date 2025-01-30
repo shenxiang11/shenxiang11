@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Dragon dance, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![La Brecha de Rolando, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 8.04%
+今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 8.32%
 
-> ⏰ 最后更新于 2025年01月30日 06:32:40
+> ⏰ 最后更新于 2025年01月31日 06:32:14
 
 
 ---
