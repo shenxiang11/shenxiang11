@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![National Museum of African American History &amp; Culture, Washington, DC (© BrianPIrwin/Shutterstock)](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 8.59%
+今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 8.87%
 
-> ⏰ 最后更新于 2025年02月01日 06:32:27
+> ⏰ 最后更新于 2025年02月02日 06:32:10
 
 
 ---
