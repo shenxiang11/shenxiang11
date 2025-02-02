@@ -1,13 +1,13 @@
 ## 每日一图
 
-![National Museum of African American History &amp; Culture, Washington, DC (© BrianPIrwin/Shutterstock)](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Young alpine marmot (© Jonas Fichtner-Pflaum/Getty Images)](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 8.87%
+今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 9.14%
 
-> ⏰ 最后更新于 2025年02月02日 06:32:10
+> ⏰ 最后更新于 2025年02月03日 06:32:23
 
 
 ---
