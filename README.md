@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Young alpine marmot (© Jonas Fichtner-Pflaum/Getty Images)](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ribblehead Viaduct and Ingleborough mountain, North Yorkshire, England (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 9.14%
+今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 9.42%
 
-> ⏰ 最后更新于 2025年02月03日 06:32:23
+> ⏰ 最后更新于 2025年02月04日 06:32:30
 
 
 ---
