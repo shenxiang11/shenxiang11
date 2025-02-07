@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 10.24%
+今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 10.51%
 
-> ⏰ 最后更新于 2025年02月07日 06:33:01
+> ⏰ 最后更新于 2025年02月08日 06:32:28
 
 
 ---
