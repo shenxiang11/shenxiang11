@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 10.51%
+今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 10.79%
 
-> ⏰ 最后更新于 2025年02月08日 06:32:28
+> ⏰ 最后更新于 2025年02月09日 06:31:25
 
 
 ---
