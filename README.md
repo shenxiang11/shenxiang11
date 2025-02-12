@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 11.61%
+今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 11.89%
 
-> ⏰ 最后更新于 2025年02月12日 06:33:00
+> ⏰ 最后更新于 2025年02月13日 06:32:54
 
 
 ---
