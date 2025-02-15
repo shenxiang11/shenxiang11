@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 12.44%
+今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 12.71%
 
-> ⏰ 最后更新于 2025年02月15日 06:32:35
+> ⏰ 最后更新于 2025年02月16日 06:32:54
 
 
 ---
