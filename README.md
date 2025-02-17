@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 12.99%
+今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 13.26%
 
-> ⏰ 最后更新于 2025年02月17日 06:32:00
+> ⏰ 最后更新于 2025年02月18日 06:32:25
 
 
 ---
