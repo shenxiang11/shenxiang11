@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)](https://cn.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 13.54%
+今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 13.81%
 
-> ⏰ 最后更新于 2025年02月19日 06:33:01
+> ⏰ 最后更新于 2025年02月20日 06:32:01
 
 
 ---
