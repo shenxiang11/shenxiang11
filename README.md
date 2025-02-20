@@ -1,13 +1,13 @@
 ## 每日一图
 
-![European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 13.81%
+今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 14.09%
 
-> ⏰ 最后更新于 2025年02月20日 06:32:01
+> ⏰ 最后更新于 2025年02月21日 06:33:01
 
 
 ---
