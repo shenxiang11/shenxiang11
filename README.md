@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 14.91%
+今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 15.18%
 
-> ⏰ 最后更新于 2025年02月24日 06:32:19
+> ⏰ 最后更新于 2025年02月25日 06:33:14
 
 
 ---
