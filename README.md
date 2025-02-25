@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sandstone hoodoos, Bryce Canyon National Park, Utah (© Stephen Matera/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 15.18%
+今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 15.46%
 
-> ⏰ 最后更新于 2025年02月25日 06:33:14
+> ⏰ 最后更新于 2025年02月26日 06:33:23
 
 
 ---
