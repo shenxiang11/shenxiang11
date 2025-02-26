@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sandstone hoodoos, Bryce Canyon National Park, Utah (© Stephen Matera/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)](https://cn.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 15.46%
+今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 15.73%
 
-> ⏰ 最后更新于 2025年02月26日 06:33:23
+> ⏰ 最后更新于 2025年02月27日 06:33:27
 
 
 ---
