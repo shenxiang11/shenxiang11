@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Eucalyptus trees, Megalong Valley, Blue Mountains National Park, NSW, Australia (© Andrew Peacock/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 16.56%
+今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 16.83%
 
-> ⏰ 最后更新于 2025年03月02日 06:32:43
+> ⏰ 最后更新于 2025年03月03日 06:32:38
 
 
 ---
