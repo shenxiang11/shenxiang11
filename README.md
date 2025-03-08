@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Plum blossoms in China (© zhikun sun/Getty Images)](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 18.21%
+今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 18.48%
 
-> ⏰ 最后更新于 2025年03月08日 06:30:41
+> ⏰ 最后更新于 2025年03月09日 06:30:44
 
 
 ---
