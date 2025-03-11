@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.03%
+今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.31%
 
-> ⏰ 最后更新于 2025年03月11日 06:33:39
+> ⏰ 最后更新于 2025年03月12日 06:33:35
 
 
 ---
