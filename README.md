@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Château de Sully-sur-Loire, Center-Val de Loire, France (© StockPhotoAstur/Shutterstock)](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.31%
+今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.58%
 
-> ⏰ 最后更新于 2025年03月12日 06:33:35
+> ⏰ 最后更新于 2025年03月13日 06:33:29
 
 
 ---
