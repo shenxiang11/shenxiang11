@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Holi celebration in Jaipur, India (© powerofforever/Getty Images)](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Dolmen of Sorginetxe, Basque Country, Álava, Spain (© David Herraez Calzada/plainpicture)](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.86%
+今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.13%
 
-> ⏰ 最后更新于 2025年03月14日 06:33:11
+> ⏰ 最后更新于 2025年03月15日 06:33:14
 
 
 ---
