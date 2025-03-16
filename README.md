@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Temple of Saturn in the Roman Forum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.40%
+今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.68%
 
-> ⏰ 最后更新于 2025年03月16日 06:33:24
+> ⏰ 最后更新于 2025年03月17日 06:32:37
 
 
 ---
