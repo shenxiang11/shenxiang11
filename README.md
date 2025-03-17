@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.68%
+今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.95%
 
-> ⏰ 最后更新于 2025年03月17日 06:32:37
+> ⏰ 最后更新于 2025年03月18日 06:34:10
 
 
 ---
