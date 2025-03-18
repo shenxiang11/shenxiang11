@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.95%
+今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 21.23%
 
-> ⏰ 最后更新于 2025年03月18日 06:34:10
+> ⏰ 最后更新于 2025年03月19日 06:33:25
 
 
 ---
