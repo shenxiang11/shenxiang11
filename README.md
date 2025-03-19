@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 21.23%
+今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 21.50%
 
-> ⏰ 最后更新于 2025年03月19日 06:33:25
+> ⏰ 最后更新于 2025年03月20日 06:33:46
 
 
 ---
