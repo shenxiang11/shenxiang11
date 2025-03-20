@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Spring daffodils glowing in morning light (© LedyX/Shutterstock)](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 21.50%
+今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 21.78%
 
-> ⏰ 最后更新于 2025年03月20日 06:33:46
+> ⏰ 最后更新于 2025年03月21日 06:33:30
 
 
 ---
