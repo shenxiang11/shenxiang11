@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spring daffodils glowing in morning light (© LedyX/Shutterstock)](https://cn.bing.com/th?id=OHR.SpringDaffodils_EN-US9726346116_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mist over a lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)](https://cn.bing.com/th?id=OHR.DanumValley_EN-US1030783251_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 21.78%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 22.05%
 
-> ⏰ 最后更新于 2025年03月21日 06:33:30
+> ⏰ 最后更新于 2025年03月22日 06:33:36
 
 
 ---
