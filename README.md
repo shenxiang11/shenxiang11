@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mist over a lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)](https://cn.bing.com/th?id=OHR.DanumValley_EN-US1030783251_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 22.05%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 22.33%
 
-> ⏰ 最后更新于 2025年03月22日 06:33:36
+> ⏰ 最后更新于 2025年03月23日 06:32:44
 
 
 ---
