@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 22.88%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.15%
 
-> ⏰ 最后更新于 2025年03月25日 06:34:06
+> ⏰ 最后更新于 2025年03月26日 06:34:09
 
 
 ---
