@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Manatee in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Stephen Frink/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.15%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.43%
 
-> ⏰ 最后更新于 2025年03月26日 06:34:09
+> ⏰ 最后更新于 2025年03月27日 06:33:50
 
 
 ---
