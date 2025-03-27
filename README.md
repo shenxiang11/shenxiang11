@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Manatee in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Stephen Frink/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Odeon of Herodes Atticus, Acropolis of Athens, Greece (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.43%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.70%
 
-> ⏰ 最后更新于 2025年03月27日 06:33:50
+> ⏰ 最后更新于 2025年03月28日 06:33:47
 
 
 ---
