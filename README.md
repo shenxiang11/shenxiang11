@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Odeon of Herodes Atticus, Acropolis of Athens, Greece (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Female black-naped monarch nesting (© komkrit tonusin/Alamy)](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.70%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.98%
 
-> ⏰ 最后更新于 2025年03月28日 06:33:47
+> ⏰ 最后更新于 2025年03月29日 06:33:21
 
 
 ---
