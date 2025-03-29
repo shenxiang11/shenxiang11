@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Female black-naped monarch nesting (© komkrit tonusin/Alamy)](https://cn.bing.com/th?id=OHR.NestingMonarch_EN-US2312410271_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Superbloom in Carrizo Plain National Monument, California (© Robb Hirsch/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-US2504669059_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.98%
+今年已经过去：████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 24.25%
 
-> ⏰ 最后更新于 2025年03月29日 06:33:21
+> ⏰ 最后更新于 2025年03月30日 06:32:54
 
 
 ---
