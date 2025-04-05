@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The National Cherry Blossom Festival in Washington, DC (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.CherryBlossomDC_EN-US9897772834_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_EN-US9970203395_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 25.90%
+今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 26.17%
 
-> ⏰ 最后更新于 2025年04月05日 06:33:52
+> ⏰ 最后更新于 2025年04月06日 06:33:26
 
 
 ---
