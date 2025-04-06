@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_EN-US9970203395_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![George Peabody Library, Baltimore, Maryland (© Wim Wiskerke/Alamy)](https://cn.bing.com/th?id=OHR.PeabodyBaltimore_EN-US0036943577_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 26.17%
+今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 26.45%
 
-> ⏰ 最后更新于 2025年04月06日 06:33:26
+> ⏰ 最后更新于 2025年04月07日 06:33:04
 
 
 ---
