@@ -1,13 +1,13 @@
 ## 每日一图
 
-![North American beaver, Moran, Wyoming (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I&#39;Anson/Getty Images)](https://cn.bing.com/th?id=OHR.ParoTsechu_EN-US0177055246_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 26.72%
+今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 27.00%
 
-> ⏰ 最后更新于 2025年04月08日 06:33:55
+> ⏰ 最后更新于 2025年04月09日 06:34:02
 
 
 ---
