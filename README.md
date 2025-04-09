@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I&#39;Anson/Getty Images)](https://cn.bing.com/th?id=OHR.ParoTsechu_EN-US0177055246_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 27.00%
+今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 27.27%
 
-> ⏰ 最后更新于 2025年04月09日 06:34:02
+> ⏰ 最后更新于 2025年04月10日 06:33:18
 
 
 ---
