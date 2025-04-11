@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Red fox cubs near their den (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tulip fields in Netherlands (© 1111IESPDJ/Getty Images)](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 27.55%
+今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 27.82%
 
-> ⏰ 最后更新于 2025年04月11日 06:34:34
+> ⏰ 最后更新于 2025年04月12日 06:34:35
 
 
 ---
