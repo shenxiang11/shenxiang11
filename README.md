@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tulip fields in Netherlands (© 1111IESPDJ/Getty Images)](https://cn.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 27.82%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.10%
 
-> ⏰ 最后更新于 2025年04月12日 06:34:35
+> ⏰ 最后更新于 2025年04月13日 06:33:08
 
 
 ---
