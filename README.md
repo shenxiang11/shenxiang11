@@ -1,13 +1,13 @@
 ## 每日一图
 
-![View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)](https://cn.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.10%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.37%
 
-> ⏰ 最后更新于 2025年04月13日 06:33:08
+> ⏰ 最后更新于 2025年04月14日 06:33:21
 
 
 ---
