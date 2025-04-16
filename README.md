@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Beach art by Zarpõ at plage de Sauveterre, Les Sables-d&#39;Olonne, France (© Hemis/Alamy)](https://cn.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.92%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.20%
 
-> ⏰ 最后更新于 2025年04月16日 06:34:19
+> ⏰ 最后更新于 2025年04月17日 06:34:34
 
 
 ---
