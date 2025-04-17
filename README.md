@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.20%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.47%
 
-> ⏰ 最后更新于 2025年04月17日 06:34:34
+> ⏰ 最后更新于 2025年04月18日 06:33:52
 
 
 ---
