@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)](https://cn.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.47%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.75%
 
-> ⏰ 最后更新于 2025年04月18日 06:33:52
+> ⏰ 最后更新于 2025年04月19日 06:34:01
 
 
 ---
