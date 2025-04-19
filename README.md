@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Zion National Park, Utah (© Simon Dannhauer/Getty Images)](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.75%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.02%
 
-> ⏰ 最后更新于 2025年04月19日 06:34:01
+> ⏰ 最后更新于 2025年04月20日 06:33:15
 
 
 ---
