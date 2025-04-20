@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Zion National Park, Utah (© Simon Dannhauer/Getty Images)](https://cn.bing.com/th?id=OHR.ZionValley_EN-US2520458606_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.02%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.29%
 
-> ⏰ 最后更新于 2025年04月20日 06:33:15
+> ⏰ 最后更新于 2025年04月21日 06:34:05
 
 
 ---
