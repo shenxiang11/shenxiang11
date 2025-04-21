@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.29%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.57%
 
-> ⏰ 最后更新于 2025年04月21日 06:34:05
+> ⏰ 最后更新于 2025年04月22日 06:34:08
 
 
 ---
