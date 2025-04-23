@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Shakespeare&#39;s Globe, London, England (© Peter Dazeley/Getty Images)](https://cn.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.84%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.12%
 
-> ⏰ 最后更新于 2025年04月23日 06:34:31
+> ⏰ 最后更新于 2025年04月24日 06:34:38
 
 
 ---
