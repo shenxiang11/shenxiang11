@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.39%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.67%
 
-> ⏰ 最后更新于 2025年04月25日 06:35:00
+> ⏰ 最后更新于 2025年04月26日 06:34:44
 
 
 ---
