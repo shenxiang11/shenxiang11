@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Halema&#39;uma&#39;u Crater&#39;s lava lake, Kīlauea Caldera, Hawai&#39;i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.22%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.49%
 
-> ⏰ 最后更新于 2025年04月28日 06:33:33
+> ⏰ 最后更新于 2025年04月29日 06:34:20
 
 
 ---
