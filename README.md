@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.49%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.77%
 
-> ⏰ 最后更新于 2025年04月29日 06:34:20
+> ⏰ 最后更新于 2025年04月30日 06:34:16
 
 
 ---
