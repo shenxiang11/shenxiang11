@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.04%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.32%
 
-> ⏰ 最后更新于 2025年05月01日 06:34:17
+> ⏰ 最后更新于 2025年05月02日 06:34:31
 
 
 ---
