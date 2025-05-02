@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.32%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.59%
 
-> ⏰ 最后更新于 2025年05月02日 06:34:31
+> ⏰ 最后更新于 2025年05月03日 06:34:59
 
 
 ---
