@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Milky Way framed by Double Arch in Arches National Park, Utah (© Adventure_Photo/Getty Images)](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.59%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.87%
 
-> ⏰ 最后更新于 2025年05月03日 06:34:59
+> ⏰ 最后更新于 2025年05月04日 06:33:41
 
 
 ---
