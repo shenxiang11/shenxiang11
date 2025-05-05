@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Plaza de España, Seville, Spain (© Horia Merla/Getty Images)](https://cn.bing.com/th?id=OHR.SevilleNaboo_EN-US5814352031_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)](https://cn.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.14%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.42%
 
-> ⏰ 最后更新于 2025年05月05日 06:33:53
+> ⏰ 最后更新于 2025年05月06日 06:34:54
 
 
 ---
