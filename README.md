@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)](https://cn.bing.com/th?id=OHR.CincoFlags_EN-US5873749093_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-US6033011196_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.42%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.69%
 
-> ⏰ 最后更新于 2025年05月06日 06:34:54
+> ⏰ 最后更新于 2025年05月07日 06:34:29
 
 
 ---
