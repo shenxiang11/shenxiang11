@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Common chameleon (© Photostock-Israel/SPL/Getty Images)](https://cn.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Minnesota State Capitol, St. Paul, Minnesota (© lavin photography/Getty Images)](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.51%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.79%
 
-> ⏰ 最后更新于 2025年05月10日 06:34:19
+> ⏰ 最后更新于 2025年05月11日 06:33:17
 
 
 ---
