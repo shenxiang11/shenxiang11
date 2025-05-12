@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![An iris garden in Tokyo, Japan (© M.Arai/Getty Images)](https://cn.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.06%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.34%
 
-> ⏰ 最后更新于 2025年05月12日 06:33:52
+> ⏰ 最后更新于 2025年05月13日 06:34:44
 
 
 ---
