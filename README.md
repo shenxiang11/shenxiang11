@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.61%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.89%
 
-> ⏰ 最后更新于 2025年05月14日 06:34:58
+> ⏰ 最后更新于 2025年05月15日 06:31:52
 
 
 ---
