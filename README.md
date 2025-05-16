@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Big Ben and the Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)](https://cn.bing.com/th?id=OHR.LondonParliament_EN-US7213846564_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.16%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.44%
 
-> ⏰ 最后更新于 2025年05月16日 06:34:36
+> ⏰ 最后更新于 2025年05月17日 06:34:18
 
 
 ---
