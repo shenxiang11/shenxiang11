@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.44%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.71%
 
-> ⏰ 最后更新于 2025年05月17日 06:34:18
+> ⏰ 最后更新于 2025年05月18日 06:33:25
 
 
 ---
