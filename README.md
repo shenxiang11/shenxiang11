@@ -1,13 +1,13 @@
 ## 每日一图
 
-![&#39;The Spirit of Electricity&#39; by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.99%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.26%
 
-> ⏰ 最后更新于 2025年05月19日 06:33:42
+> ⏰ 最后更新于 2025年05月20日 06:34:44
 
 
 ---
