@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Honey bee on lavender flowers (© Anthony Brown/Alamy)](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.54%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.81%
 
-> ⏰ 最后更新于 2025年05月21日 06:34:32
+> ⏰ 最后更新于 2025年05月22日 06:34:41
 
 
 ---
