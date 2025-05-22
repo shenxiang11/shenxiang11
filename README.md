@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.81%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.09%
 
-> ⏰ 最后更新于 2025年05月22日 06:34:41
+> ⏰ 最后更新于 2025年05月23日 06:34:54
 
 
 ---
