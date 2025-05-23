@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)](https://cn.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.09%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.36%
 
-> ⏰ 最后更新于 2025年05月23日 06:34:54
+> ⏰ 最后更新于 2025年05月24日 06:34:24
 
 
 ---
