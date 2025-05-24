@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)](https://cn.bing.com/th?id=OHR.JotunheimenPark_EN-US4200824377_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.36%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.64%
 
-> ⏰ 最后更新于 2025年05月24日 06:34:24
+> ⏰ 最后更新于 2025年05月25日 06:33:48
 
 
 ---
