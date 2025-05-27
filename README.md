@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)](https://cn.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.19%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.46%
 
-> ⏰ 最后更新于 2025年05月27日 06:34:29
+> ⏰ 最后更新于 2025年05月28日 06:34:42
 
 
 ---
