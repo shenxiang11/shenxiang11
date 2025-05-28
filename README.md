@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)](https://cn.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)](https://cn.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.46%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.73%
 
-> ⏰ 最后更新于 2025年05月28日 06:34:42
+> ⏰ 最后更新于 2025年05月29日 06:34:36
 
 
 ---
