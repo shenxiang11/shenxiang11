@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Miravet on the Ebro River, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Little Pigeon River, Great Smoky Mountains National Park, Tennessee (© GreenStock/Getty Images)](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 41.01%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 41.28%
 
-> ⏰ 最后更新于 2025年05月30日 06:35:00
+> ⏰ 最后更新于 2025年05月31日 06:34:30
 
 
 ---
