@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Little Pigeon River, Great Smoky Mountains National Park, Tennessee (© GreenStock/Getty Images)](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Knuthöjdsmossen, a nature reserve in Sweden (© Sven Halling/DEEPOL/plainpicture)](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 41.28%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 41.56%
 
-> ⏰ 最后更新于 2025年05月31日 06:34:30
+> ⏰ 最后更新于 2025年06月01日 06:34:31
 
 
 ---
