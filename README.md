@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)](https://cn.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.38%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.66%
 
-> ⏰ 最后更新于 2025年06月04日 06:35:07
+> ⏰ 最后更新于 2025年06月05日 06:32:49
 
 
 ---
