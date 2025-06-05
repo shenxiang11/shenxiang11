@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)](https://cn.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.66%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.93%
 
-> ⏰ 最后更新于 2025年06月05日 06:32:49
+> ⏰ 最后更新于 2025年06月06日 06:34:28
 
 
 ---
