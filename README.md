@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.93%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.21%
 
-> ⏰ 最后更新于 2025年06月06日 06:34:28
+> ⏰ 最后更新于 2025年06月07日 06:35:00
 
 
 ---
