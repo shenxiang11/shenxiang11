@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.21%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.48%
 
-> ⏰ 最后更新于 2025年06月07日 06:35:00
+> ⏰ 最后更新于 2025年06月08日 06:34:21
 
 
 ---
