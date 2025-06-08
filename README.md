@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.48%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.76%
 
-> ⏰ 最后更新于 2025年06月08日 06:34:21
+> ⏰ 最后更新于 2025年06月09日 06:34:14
 
 
 ---
