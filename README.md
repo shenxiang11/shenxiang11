@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.31%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.58%
 
-> ⏰ 最后更新于 2025年06月11日 06:35:01
+> ⏰ 最后更新于 2025年06月12日 06:34:58
 
 
 ---
