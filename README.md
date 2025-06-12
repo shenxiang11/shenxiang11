@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.58%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.86%
 
-> ⏰ 最后更新于 2025年06月12日 06:34:58
+> ⏰ 最后更新于 2025年06月13日 06:34:47
 
 
 ---
