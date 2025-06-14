@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)](https://cn.bing.com/th?id=OHR.SanMiguelAzores_EN-US2785372768_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)](https://cn.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.13%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.40%
 
-> ⏰ 最后更新于 2025年06月14日 06:34:58
+> ⏰ 最后更新于 2025年06月15日 06:34:16
 
 
 ---
