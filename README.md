@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)](https://cn.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.40%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.68%
 
-> ⏰ 最后更新于 2025年06月15日 06:34:16
+> ⏰ 最后更新于 2025年06月16日 06:34:26
 
 
 ---
