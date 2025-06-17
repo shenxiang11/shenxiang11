@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.95%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.23%
 
-> ⏰ 最后更新于 2025年06月17日 06:34:57
+> ⏰ 最后更新于 2025年06月18日 06:35:08
 
 
 ---
