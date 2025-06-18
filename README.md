@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.23%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.50%
 
-> ⏰ 最后更新于 2025年06月18日 06:35:08
+> ⏰ 最后更新于 2025年06月19日 06:34:51
 
 
 ---
