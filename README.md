@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)](https://cn.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Texas State Capitol in Austin (© joe daniel price/Getty Images)](https://cn.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.50%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.78%
 
-> ⏰ 最后更新于 2025年06月19日 06:34:51
+> ⏰ 最后更新于 2025年06月20日 06:34:50
 
 
 ---
