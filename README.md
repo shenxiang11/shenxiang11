@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Amazon rainforest, Ecuador (© Mark Fox/Getty Images)](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.33%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.60%
 
-> ⏰ 最后更新于 2025年06月22日 06:34:19
+> ⏰ 最后更新于 2025年06月23日 06:34:29
 
 
 ---
