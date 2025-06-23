@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Amazon rainforest, Ecuador (© Mark Fox/Getty Images)](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.60%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.88%
 
-> ⏰ 最后更新于 2025年06月23日 06:34:29
+> ⏰ 最后更新于 2025年06月24日 06:35:20
 
 
 ---
