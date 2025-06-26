@@ -1,13 +1,13 @@
 ## 每日一图
 
-![St. Michael&#39;s Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.43%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.70%
 
-> ⏰ 最后更新于 2025年06月26日 06:34:58
+> ⏰ 最后更新于 2025年06月27日 06:35:07
 
 
 ---
