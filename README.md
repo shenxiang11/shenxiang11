@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Splendid leaf frog (© Jan Stria/Shutterstock)](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Rainbow flags at New York Pride (© Alan Schein/Getty Images)](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.98%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.25%
 
-> ⏰ 最后更新于 2025年06月28日 06:35:30
+> ⏰ 最后更新于 2025年06月29日 06:34:24
 
 
 ---
