@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Rainbow flags at New York Pride (© Alan Schein/Getty Images)](https://cn.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.25%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.53%
 
-> ⏰ 最后更新于 2025年06月29日 06:34:24
+> ⏰ 最后更新于 2025年06月30日 06:34:45
 
 
 ---
