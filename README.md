@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)](https://cn.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.53%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.80%
 
-> ⏰ 最后更新于 2025年06月30日 06:34:45
+> ⏰ 最后更新于 2025年07月01日 06:35:06
 
 
 ---
