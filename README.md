@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fishing village of Tilting, Fogo Island, Newfoundland and Labrador, Canada (© FedevPhoto/Getty Images)](https://cn.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.80%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.08%
 
-> ⏰ 最后更新于 2025年07月01日 06:35:06
+> ⏰ 最后更新于 2025年07月02日 06:35:10
 
 
 ---
