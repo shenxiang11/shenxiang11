@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.35%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.62%
 
-> ⏰ 最后更新于 2025年07月03日 06:35:02
+> ⏰ 最后更新于 2025年07月04日 06:35:02
 
 
 ---
