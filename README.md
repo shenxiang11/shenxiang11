@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)](https://cn.bing.com/th?id=OHR.SeattleFireworks_EN-US0523563675_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.62%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.90%
 
-> ⏰ 最后更新于 2025年07月04日 06:35:02
+> ⏰ 最后更新于 2025年07月05日 06:35:05
 
 
 ---
