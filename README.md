@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TourCyclists_EN-US0589835009_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 51.17%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 51.45%
 
-> ⏰ 最后更新于 2025年07月06日 06:34:15
+> ⏰ 最后更新于 2025年07月07日 06:35:02
 
 
 ---
