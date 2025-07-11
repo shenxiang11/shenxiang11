@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tokyo at sunrise (© pongnathee kluaythong/Getty Images)](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.55%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.82%
 
-> ⏰ 最后更新于 2025年07月11日 06:35:15
+> ⏰ 最后更新于 2025年07月12日 06:35:35
 
 
 ---
