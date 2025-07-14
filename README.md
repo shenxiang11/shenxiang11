@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)](https://cn.bing.com/th?id=OHR.YoungShark_EN-US4689572794_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.37%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.65%
 
-> ⏰ 最后更新于 2025年07月14日 06:35:15
+> ⏰ 最后更新于 2025年07月15日 06:36:37
 
 
 ---
