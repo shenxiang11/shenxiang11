@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)](https://cn.bing.com/th?id=OHR.YoungShark_EN-US4689572794_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.65%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.92%
 
-> ⏰ 最后更新于 2025年07月15日 06:36:37
+> ⏰ 最后更新于 2025年07月16日 06:36:04
 
 
 ---
