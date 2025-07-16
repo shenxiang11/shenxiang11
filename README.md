@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)](https://cn.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.92%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.20%
 
-> ⏰ 最后更新于 2025年07月16日 06:36:04
+> ⏰ 最后更新于 2025年07月17日 06:36:56
 
 
 ---
