@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.20%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.47%
 
-> ⏰ 最后更新于 2025年07月17日 06:36:56
+> ⏰ 最后更新于 2025年07月18日 06:35:58
 
 
 ---
