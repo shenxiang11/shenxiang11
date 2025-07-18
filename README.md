@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.47%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.75%
 
-> ⏰ 最后更新于 2025年07月18日 06:35:58
+> ⏰ 最后更新于 2025年07月19日 06:35:44
 
 
 ---
