@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.75%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.02%
 
-> ⏰ 最后更新于 2025年07月19日 06:35:44
+> ⏰ 最后更新于 2025年07月20日 06:35:28
 
 
 ---
