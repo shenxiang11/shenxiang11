@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The moon&#39;s surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.02%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.30%
 
-> ⏰ 最后更新于 2025年07月20日 06:35:28
+> ⏰ 最后更新于 2025年07月21日 06:35:25
 
 
 ---
