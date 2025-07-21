@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The moon&#39;s surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.30%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.57%
 
-> ⏰ 最后更新于 2025年07月21日 06:35:25
+> ⏰ 最后更新于 2025年07月22日 06:35:59
 
 
 ---
