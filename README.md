@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.57%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.84%
 
-> ⏰ 最后更新于 2025年07月22日 06:35:59
+> ⏰ 最后更新于 2025年07月23日 06:35:20
 
 
 ---
