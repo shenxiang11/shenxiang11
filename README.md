@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Vatican City with St. Peter&#39;s Basilica (© RudyBalasko/Getty Images)](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.84%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.12%
 
-> ⏰ 最后更新于 2025年07月23日 06:35:20
+> ⏰ 最后更新于 2025年07月24日 06:36:06
 
 
 ---
