@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Vatican City with St. Peter&#39;s Basilica (© RudyBalasko/Getty Images)](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.12%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.39%
 
-> ⏰ 最后更新于 2025年07月24日 06:36:06
+> ⏰ 最后更新于 2025年07月25日 06:36:01
 
 
 ---
