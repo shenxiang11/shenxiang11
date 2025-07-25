@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.39%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.67%
 
-> ⏰ 最后更新于 2025年07月25日 06:36:01
+> ⏰ 最后更新于 2025年07月26日 06:35:48
 
 
 ---
