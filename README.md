@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.94%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.22%
 
-> ⏰ 最后更新于 2025年07月27日 06:35:33
+> ⏰ 最后更新于 2025年07月28日 06:35:41
 
 
 ---
