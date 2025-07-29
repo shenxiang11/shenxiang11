@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)](https://cn.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.49%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.77%
 
-> ⏰ 最后更新于 2025年07月29日 06:37:10
+> ⏰ 最后更新于 2025年07月30日 06:36:35
 
 
 ---
