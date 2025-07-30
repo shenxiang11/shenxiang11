@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)](https://cn.bing.com/th?id=OHR.TigerDay_EN-US5038876410_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![&#39;Beyond Walls&#39; land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.77%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.04%
 
-> ⏰ 最后更新于 2025年07月30日 06:36:35
+> ⏰ 最后更新于 2025年07月31日 06:36:23
 
 
 ---
