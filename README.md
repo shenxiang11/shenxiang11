@@ -1,13 +1,13 @@
 ## 每日一图
 
-![&#39;Beyond Walls&#39; land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://cn.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.04%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.32%
 
-> ⏰ 最后更新于 2025年07月31日 06:36:23
+> ⏰ 最后更新于 2025年08月01日 06:36:07
 
 
 ---
