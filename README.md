@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.32%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.59%
 
-> ⏰ 最后更新于 2025年08月01日 06:36:07
+> ⏰ 最后更新于 2025年08月02日 06:36:09
 
 
 ---
