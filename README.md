@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)](https://cn.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.59%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.87%
 
-> ⏰ 最后更新于 2025年08月02日 06:36:09
+> ⏰ 最后更新于 2025年08月03日 06:35:41
 
 
 ---
