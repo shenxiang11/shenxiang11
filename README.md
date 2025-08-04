@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunflowers in a field in summer (© Arsgera/Shutterstock)](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.14%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.42%
 
-> ⏰ 最后更新于 2025年08月04日 06:36:07
+> ⏰ 最后更新于 2025年08月05日 06:36:49
 
 
 ---
