@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tide pools in La Jolla, California (© Andrew Shoemaker/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.42%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.69%
 
-> ⏰ 最后更新于 2025年08月05日 06:36:49
+> ⏰ 最后更新于 2025年08月06日 06:36:49
 
 
 ---
