@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)](https://cn.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.97%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.24%
 
-> ⏰ 最后更新于 2025年08月07日 06:36:44
+> ⏰ 最后更新于 2025年08月08日 06:36:37
 
 
 ---
