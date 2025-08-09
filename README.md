@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.52%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.79%
 
-> ⏰ 最后更新于 2025年08月09日 06:35:31
+> ⏰ 最后更新于 2025年08月10日 06:35:07
 
 
 ---
