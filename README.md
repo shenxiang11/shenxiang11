@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)](https://cn.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.79%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.06%
 
-> ⏰ 最后更新于 2025年08月10日 06:35:07
+> ⏰ 最后更新于 2025年08月11日 06:35:03
 
 
 ---
