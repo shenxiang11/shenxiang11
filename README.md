@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.34%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.61%
 
-> ⏰ 最后更新于 2025年08月12日 06:35:05
+> ⏰ 最后更新于 2025年08月13日 06:34:53
 
 
 ---
