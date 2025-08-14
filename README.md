@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.89%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.16%
 
-> ⏰ 最后更新于 2025年08月14日 06:34:24
+> ⏰ 最后更新于 2025年08月15日 06:34:53
 
 
 ---
