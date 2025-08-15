@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.16%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.44%
 
-> ⏰ 最后更新于 2025年08月15日 06:34:53
+> ⏰ 最后更新于 2025年08月16日 06:35:08
 
 
 ---
