@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Colorful beehives in Italy (© Roberto Caucino/Shutterstock)](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.44%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.71%
 
-> ⏰ 最后更新于 2025年08月16日 06:35:08
+> ⏰ 最后更新于 2025年08月17日 06:34:15
 
 
 ---
