@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Colorful beehives in Italy (© Roberto Caucino/Shutterstock)](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.71%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.99%
 
-> ⏰ 最后更新于 2025年08月17日 06:34:15
+> ⏰ 最后更新于 2025年08月18日 06:34:49
 
 
 ---
