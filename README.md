@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.99%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.26%
 
-> ⏰ 最后更新于 2025年08月18日 06:34:49
+> ⏰ 最后更新于 2025年08月19日 06:33:30
 
 
 ---
