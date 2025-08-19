@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-US1814683119_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.26%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.54%
 
-> ⏰ 最后更新于 2025年08月19日 06:33:30
+> ⏰ 最后更新于 2025年08月20日 06:34:21
 
 
 ---
