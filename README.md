@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)](https://cn.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.54%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.81%
 
-> ⏰ 最后更新于 2025年08月20日 06:34:21
+> ⏰ 最后更新于 2025年08月21日 06:33:35
 
 
 ---
