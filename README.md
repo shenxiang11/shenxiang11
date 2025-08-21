@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)](https://cn.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.81%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.09%
 
-> ⏰ 最后更新于 2025年08月21日 06:33:35
+> ⏰ 最后更新于 2025年08月22日 06:34:15
 
 
 ---
