@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.09%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.36%
 
-> ⏰ 最后更新于 2025年08月22日 06:34:15
+> ⏰ 最后更新于 2025年08月23日 06:33:37
 
 
 ---
