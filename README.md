@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)](https://cn.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![St. Barbara&#39;s Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.36%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.64%
 
-> ⏰ 最后更新于 2025年08月23日 06:33:37
+> ⏰ 最后更新于 2025年08月24日 06:33:26
 
 
 ---
