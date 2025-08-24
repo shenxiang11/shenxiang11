@@ -1,13 +1,13 @@
 ## 每日一图
 
-![St. Barbara&#39;s Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![European fallow deer, England (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.CervusDama_EN-US3217647015_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.64%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.91%
 
-> ⏰ 最后更新于 2025年08月24日 06:33:26
+> ⏰ 最后更新于 2025年08月25日 06:33:52
 
 
 ---
