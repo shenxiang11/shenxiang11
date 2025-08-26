@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.19%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.46%
 
-> ⏰ 最后更新于 2025年08月26日 06:34:21
+> ⏰ 最后更新于 2025年08月27日 06:33:26
 
 
 ---
