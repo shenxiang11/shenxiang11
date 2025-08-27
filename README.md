@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.46%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.73%
 
-> ⏰ 最后更新于 2025年08月27日 06:33:26
+> ⏰ 最后更新于 2025年08月28日 06:33:16
 
 
 ---
