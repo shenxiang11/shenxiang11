@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.73%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.01%
 
-> ⏰ 最后更新于 2025年08月28日 06:33:16
+> ⏰ 最后更新于 2025年08月29日 06:33:17
 
 
 ---
