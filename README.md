@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.01%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.28%
 
-> ⏰ 最后更新于 2025年08月29日 06:33:17
+> ⏰ 最后更新于 2025年08月30日 06:32:52
 
 
 ---
