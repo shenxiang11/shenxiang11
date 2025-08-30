@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.28%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.56%
 
-> ⏰ 最后更新于 2025年08月30日 06:32:52
+> ⏰ 最后更新于 2025年08月31日 06:32:41
 
 
 ---
