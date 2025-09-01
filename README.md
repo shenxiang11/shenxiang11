@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)](https://cn.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.83%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.11%
 
-> ⏰ 最后更新于 2025年09月01日 06:33:02
+> ⏰ 最后更新于 2025年09月02日 06:33:03
 
 
 ---
