@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)](https://cn.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.11%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.38%
 
-> ⏰ 最后更新于 2025年09月02日 06:33:03
+> ⏰ 最后更新于 2025年09月03日 06:32:00
 
 
 ---
