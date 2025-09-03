@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.38%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.66%
 
-> ⏰ 最后更新于 2025年09月03日 06:32:00
+> ⏰ 最后更新于 2025年09月04日 06:32:29
 
 
 ---
