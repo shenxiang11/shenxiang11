@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.66%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.93%
 
-> ⏰ 最后更新于 2025年09月04日 06:32:29
+> ⏰ 最后更新于 2025年09月05日 06:32:42
 
 
 ---
