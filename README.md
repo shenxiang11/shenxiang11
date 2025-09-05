@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.93%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.21%
 
-> ⏰ 最后更新于 2025年09月05日 06:32:42
+> ⏰ 最后更新于 2025年09月06日 06:32:45
 
 
 ---
