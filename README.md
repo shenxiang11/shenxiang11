@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.48%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.76%
 
-> ⏰ 最后更新于 2025年09月07日 06:31:38
+> ⏰ 最后更新于 2025年09月08日 06:32:02
 
 
 ---
