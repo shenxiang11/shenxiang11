@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.76%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.03%
 
-> ⏰ 最后更新于 2025年09月08日 06:32:02
+> ⏰ 最后更新于 2025年09月09日 06:33:14
 
 
 ---
