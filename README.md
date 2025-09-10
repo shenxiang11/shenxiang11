@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.31%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.58%
 
-> ⏰ 最后更新于 2025年09月10日 06:32:18
+> ⏰ 最后更新于 2025年09月11日 06:32:32
 
 
 ---
