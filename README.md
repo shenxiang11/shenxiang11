@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.58%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.86%
 
-> ⏰ 最后更新于 2025年09月11日 06:32:32
+> ⏰ 最后更新于 2025年09月12日 06:32:29
 
 
 ---
