@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)](https://cn.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.86%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.13%
 
-> ⏰ 最后更新于 2025年09月12日 06:32:29
+> ⏰ 最后更新于 2025年09月13日 06:32:06
 
 
 ---
