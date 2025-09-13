@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.13%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.40%
 
-> ⏰ 最后更新于 2025年09月13日 06:32:06
+> ⏰ 最后更新于 2025年09月14日 06:31:11
 
 
 ---
