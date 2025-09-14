@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.40%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.68%
 
-> ⏰ 最后更新于 2025年09月14日 06:31:11
+> ⏰ 最后更新于 2025年09月15日 06:31:52
 
 
 ---
