@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.68%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.95%
 
-> ⏰ 最后更新于 2025年09月15日 06:31:52
+> ⏰ 最后更新于 2025年09月16日 06:32:36
 
 
 ---
