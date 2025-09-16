@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.95%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.23%
 
-> ⏰ 最后更新于 2025年09月16日 06:32:36
+> ⏰ 最后更新于 2025年09月17日 06:30:57
 
 
 ---
