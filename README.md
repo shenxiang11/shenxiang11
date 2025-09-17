@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.23%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.50%
 
-> ⏰ 最后更新于 2025年09月17日 06:30:57
+> ⏰ 最后更新于 2025年09月18日 06:31:29
 
 
 ---
