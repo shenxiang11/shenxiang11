@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O&#39;Connor/Getty Images)](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.50%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.78%
 
-> ⏰ 最后更新于 2025年09月18日 06:31:29
+> ⏰ 最后更新于 2025年09月19日 06:31:59
 
 
 ---
