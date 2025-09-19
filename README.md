@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O&#39;Connor/Getty Images)](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.78%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.05%
 
-> ⏰ 最后更新于 2025年09月19日 06:31:59
+> ⏰ 最后更新于 2025年09月20日 06:32:19
 
 
 ---
