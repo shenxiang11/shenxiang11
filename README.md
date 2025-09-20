@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.05%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.33%
 
-> ⏰ 最后更新于 2025年09月20日 06:32:19
+> ⏰ 最后更新于 2025年09月21日 06:31:31
 
 
 ---
