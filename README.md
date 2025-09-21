@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.33%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.60%
 
-> ⏰ 最后更新于 2025年09月21日 06:31:31
+> ⏰ 最后更新于 2025年09月22日 06:32:27
 
 
 ---
