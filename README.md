@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.60%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.88%
 
-> ⏰ 最后更新于 2025年09月22日 06:32:27
+> ⏰ 最后更新于 2025年09月23日 06:32:43
 
 
 ---
