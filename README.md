@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.88%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.15%
 
-> ⏰ 最后更新于 2025年09月23日 06:32:43
+> ⏰ 最后更新于 2025年09月24日 06:32:49
 
 
 ---
