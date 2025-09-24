@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)](https://cn.bing.com/th?id=OHR.BearLodge_EN-US9061134971_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.15%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.43%
 
-> ⏰ 最后更新于 2025年09月24日 06:32:49
+> ⏰ 最后更新于 2025年09月25日 06:32:18
 
 
 ---
