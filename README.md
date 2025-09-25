@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)](https://cn.bing.com/th?id=OHR.BearLodge_EN-US9061134971_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.43%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.70%
 
-> ⏰ 最后更新于 2025年09月25日 06:32:18
+> ⏰ 最后更新于 2025年09月26日 06:32:15
 
 
 ---
