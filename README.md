@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.70%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.98%
 
-> ⏰ 最后更新于 2025年09月26日 06:32:15
+> ⏰ 最后更新于 2025年09月27日 06:32:03
 
 
 ---
