@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.98%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.25%
 
-> ⏰ 最后更新于 2025年09月27日 06:32:03
+> ⏰ 最后更新于 2025年09月28日 06:32:01
 
 
 ---
