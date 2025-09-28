@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.25%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.53%
 
-> ⏰ 最后更新于 2025年09月28日 06:32:01
+> ⏰ 最后更新于 2025年09月29日 06:32:08
 
 
 ---
