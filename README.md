@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://cn.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Clark Range, Sierra Nevada, Yosemite National Park, California (© Robb Hirsch/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.07%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.35%
 
-> ⏰ 最后更新于 2025年10月01日 06:32:45
+> ⏰ 最后更新于 2025年10月02日 06:32:48
 
 
 ---
