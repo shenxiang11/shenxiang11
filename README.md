@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Clark Range, Sierra Nevada, Yosemite National Park, California (© Robb Hirsch/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.35%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.62%
 
-> ⏰ 最后更新于 2025年10月02日 06:32:48
+> ⏰ 最后更新于 2025年10月03日 06:32:21
 
 
 ---
