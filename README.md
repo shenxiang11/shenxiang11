@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)](https://cn.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.62%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.90%
 
-> ⏰ 最后更新于 2025年10月03日 06:32:21
+> ⏰ 最后更新于 2025年10月04日 06:32:04
 
 
 ---
