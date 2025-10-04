@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.90%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.17%
 
-> ⏰ 最后更新于 2025年10月04日 06:32:04
+> ⏰ 最后更新于 2025年10月05日 06:31:50
 
 
 ---
