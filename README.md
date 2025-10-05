@@ -1,13 +1,13 @@
 ## 每日一图
 
-![ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.17%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.45%
 
-> ⏰ 最后更新于 2025年10月05日 06:31:50
+> ⏰ 最后更新于 2025年10月06日 06:32:07
 
 
 ---
