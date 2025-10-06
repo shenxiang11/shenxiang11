@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.45%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.72%
 
-> ⏰ 最后更新于 2025年10月06日 06:32:07
+> ⏰ 最后更新于 2025年10月07日 06:32:32
 
 
 ---
