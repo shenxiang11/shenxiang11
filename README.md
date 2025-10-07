@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.72%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.00%
 
-> ⏰ 最后更新于 2025年10月07日 06:32:32
+> ⏰ 最后更新于 2025年10月08日 06:32:44
 
 
 ---
