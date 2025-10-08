@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.00%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.27%
 
-> ⏰ 最后更新于 2025年10月08日 06:32:44
+> ⏰ 最后更新于 2025年10月09日 06:33:20
 
 
 ---
