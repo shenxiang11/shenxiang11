@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)](https://cn.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.27%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.55%
 
-> ⏰ 最后更新于 2025年10月09日 06:33:20
+> ⏰ 最后更新于 2025年10月10日 06:33:16
 
 
 ---
