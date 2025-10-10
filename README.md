@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)](https://cn.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.55%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.82%
 
-> ⏰ 最后更新于 2025年10月10日 06:33:16
+> ⏰ 最后更新于 2025年10月11日 06:32:33
 
 
 ---
