@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wood duck hen (© ps50ace/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.82%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.10%
 
-> ⏰ 最后更新于 2025年10月11日 06:32:33
+> ⏰ 最后更新于 2025年10月12日 06:32:00
 
 
 ---
