@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wood duck hen (© ps50ace/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.10%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.37%
 
-> ⏰ 最后更新于 2025年10月12日 06:32:00
+> ⏰ 最后更新于 2025年10月13日 06:32:08
 
 
 ---
