@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.37%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.65%
 
-> ⏰ 最后更新于 2025年10月13日 06:32:08
+> ⏰ 最后更新于 2025年10月14日 06:33:17
 
 
 ---
