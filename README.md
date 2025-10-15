@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.92%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.20%
 
-> ⏰ 最后更新于 2025年10月15日 06:33:05
+> ⏰ 最后更新于 2025年10月16日 06:32:32
 
 
 ---
