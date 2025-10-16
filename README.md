@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.20%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.47%
 
-> ⏰ 最后更新于 2025年10月16日 06:32:32
+> ⏰ 最后更新于 2025年10月17日 06:31:48
 
 
 ---
