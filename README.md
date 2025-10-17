@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.47%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.75%
 
-> ⏰ 最后更新于 2025年10月17日 06:31:48
+> ⏰ 最后更新于 2025年10月18日 06:32:56
 
 
 ---
