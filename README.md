@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.75%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.02%
 
-> ⏰ 最后更新于 2025年10月18日 06:32:56
+> ⏰ 最后更新于 2025年10月19日 06:32:21
 
 
 ---
