@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.02%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.29%
 
-> ⏰ 最后更新于 2025年10月19日 06:32:21
+> ⏰ 最后更新于 2025年10月20日 06:33:01
 
 
 ---
