@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A Hoffmann&#39;s two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)](https://cn.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.29%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.57%
 
-> ⏰ 最后更新于 2025年10月20日 06:33:01
+> ⏰ 最后更新于 2025年10月21日 06:33:15
 
 
 ---
