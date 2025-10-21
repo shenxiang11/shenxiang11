@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A Hoffmann&#39;s two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)](https://cn.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.57%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.84%
 
-> ⏰ 最后更新于 2025年10月21日 06:33:15
+> ⏰ 最后更新于 2025年10月22日 06:32:32
 
 
 ---
