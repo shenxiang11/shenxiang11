@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.84%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.12%
 
-> ⏰ 最后更新于 2025年10月22日 06:32:32
+> ⏰ 最后更新于 2025年10月23日 06:30:59
 
 
 ---
