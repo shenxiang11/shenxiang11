@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)](https://cn.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.12%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.39%
 
-> ⏰ 最后更新于 2025年10月23日 06:30:59
+> ⏰ 最后更新于 2025年10月24日 06:33:16
 
 
 ---
