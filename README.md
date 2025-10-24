@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)](https://cn.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.39%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.67%
 
-> ⏰ 最后更新于 2025年10月24日 06:33:16
+> ⏰ 最后更新于 2025年10月25日 06:33:47
 
 
 ---
