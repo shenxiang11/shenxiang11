@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.67%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.94%
 
-> ⏰ 最后更新于 2025年10月25日 06:33:47
+> ⏰ 最后更新于 2025年10月26日 06:32:12
 
 
 ---
