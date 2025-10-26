@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.94%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.22%
 
-> ⏰ 最后更新于 2025年10月26日 06:32:12
+> ⏰ 最后更新于 2025年10月27日 06:33:19
 
 
 ---
