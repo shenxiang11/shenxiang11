@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.22%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.49%
 
-> ⏰ 最后更新于 2025年10月27日 06:33:19
+> ⏰ 最后更新于 2025年10月28日 06:33:19
 
 
 ---
