@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.49%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.77%
 
-> ⏰ 最后更新于 2025年10月28日 06:33:19
+> ⏰ 最后更新于 2025年10月29日 06:34:14
 
 
 ---
