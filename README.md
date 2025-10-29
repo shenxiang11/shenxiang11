@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.77%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.04%
 
-> ⏰ 最后更新于 2025年10月29日 06:34:14
+> ⏰ 最后更新于 2025年10月30日 06:34:09
 
 
 ---
