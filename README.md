@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://cn.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.04%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.32%
 
-> ⏰ 最后更新于 2025年10月30日 06:34:09
+> ⏰ 最后更新于 2025年10月31日 06:33:36
 
 
 ---
