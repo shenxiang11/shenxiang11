@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Entrance of Bran Castle in Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)](https://cn.bing.com/th?id=OHR.BranCastle_EN-US5914201029_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)](https://cn.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.59%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.87%
 
-> ⏰ 最后更新于 2025年11月01日 06:33:59
+> ⏰ 最后更新于 2025年11月02日 06:32:27
 
 
 ---
