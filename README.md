@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)](https://cn.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.87%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.14%
 
-> ⏰ 最后更新于 2025年11月02日 06:32:27
+> ⏰ 最后更新于 2025年11月03日 06:32:49
 
 
 ---
