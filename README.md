@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)](https://cn.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.14%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.42%
 
-> ⏰ 最后更新于 2025年11月03日 06:32:49
+> ⏰ 最后更新于 2025年11月04日 06:34:02
 
 
 ---
