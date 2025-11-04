@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.42%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.69%
 
-> ⏰ 最后更新于 2025年11月04日 06:34:02
+> ⏰ 最后更新于 2025年11月05日 06:34:03
 
 
 ---
