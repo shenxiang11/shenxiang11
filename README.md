@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.69%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.97%
 
-> ⏰ 最后更新于 2025年11月05日 06:34:03
+> ⏰ 最后更新于 2025年11月06日 06:34:08
 
 
 ---
