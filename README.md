@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)](https://cn.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)](https://cn.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.97%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.24%
 
-> ⏰ 最后更新于 2025年11月06日 06:34:08
+> ⏰ 最后更新于 2025年11月07日 06:34:03
 
 
 ---
