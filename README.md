@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)](https://cn.bing.com/th?id=OHR.WillowBear_EN-US6995170630_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.51%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.79%
 
-> ⏰ 最后更新于 2025年11月08日 06:33:42
+> ⏰ 最后更新于 2025年11月09日 06:32:28
 
 
 ---
