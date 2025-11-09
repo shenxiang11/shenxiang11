@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.79%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 86.06%
 
-> ⏰ 最后更新于 2025年11月09日 06:32:28
+> ⏰ 最后更新于 2025年11月10日 06:33:08
 
 
 ---
