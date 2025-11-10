@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)](https://cn.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 86.06%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 86.34%
 
-> ⏰ 最后更新于 2025年11月10日 06:33:08
+> ⏰ 最后更新于 2025年11月11日 06:34:31
 
 
 ---
