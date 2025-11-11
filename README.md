@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)](https://cn.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 86.34%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 86.61%
 
-> ⏰ 最后更新于 2025年11月11日 06:34:31
+> ⏰ 最后更新于 2025年11月12日 06:34:07
 
 
 ---
