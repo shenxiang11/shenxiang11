@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)](https://cn.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 86.61%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 86.89%
 
-> ⏰ 最后更新于 2025年11月12日 06:34:07
+> ⏰ 最后更新于 2025年11月13日 06:33:03
 
 
 ---
