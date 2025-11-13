@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 86.89%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.16%
 
-> ⏰ 最后更新于 2025年11月13日 06:33:03
+> ⏰ 最后更新于 2025年11月14日 06:34:26
 
 
 ---
