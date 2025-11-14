@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.16%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.44%
 
-> ⏰ 最后更新于 2025年11月14日 06:34:26
+> ⏰ 最后更新于 2025年11月15日 06:34:21
 
 
 ---
