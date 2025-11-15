@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.44%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.71%
 
-> ⏰ 最后更新于 2025年11月15日 06:34:21
+> ⏰ 最后更新于 2025年11月16日 06:32:11
 
 
 ---
