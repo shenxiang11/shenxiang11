@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A traboule in Lyon, France (© TPopova/Getty Images)](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.71%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.99%
 
-> ⏰ 最后更新于 2025年11月16日 06:32:11
+> ⏰ 最后更新于 2025年11月17日 06:33:27
 
 
 ---
