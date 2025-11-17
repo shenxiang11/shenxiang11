@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A traboule in Lyon, France (© TPopova/Getty Images)](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://cn.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.99%
+今年已经过去：████████████████████████████████████████████░░░░░░ 88.26%
 
-> ⏰ 最后更新于 2025年11月17日 06:33:27
+> ⏰ 最后更新于 2025年11月18日 06:34:29
 
 
 ---
