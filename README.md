@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 88.54%
+今年已经过去：████████████████████████████████████████████░░░░░░ 88.81%
 
-> ⏰ 最后更新于 2025年11月19日 06:34:40
+> ⏰ 最后更新于 2025年11月20日 06:34:14
 
 
 ---
