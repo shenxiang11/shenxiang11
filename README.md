@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.09%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.36%
 
-> ⏰ 最后更新于 2025年11月21日 06:32:46
+> ⏰ 最后更新于 2025年11月22日 06:34:15
 
 
 ---
