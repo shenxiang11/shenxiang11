@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.36%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.64%
 
-> ⏰ 最后更新于 2025年11月22日 06:34:15
+> ⏰ 最后更新于 2025年11月23日 06:33:49
 
 
 ---
