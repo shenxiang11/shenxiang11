@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.64%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.91%
 
-> ⏰ 最后更新于 2025年11月23日 06:33:49
+> ⏰ 最后更新于 2025年11月24日 06:34:08
 
 
 ---
