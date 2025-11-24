@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)](https://cn.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.91%
+今年已经过去：█████████████████████████████████████████████░░░░░ 90.19%
 
-> ⏰ 最后更新于 2025年11月24日 06:34:08
+> ⏰ 最后更新于 2025年11月25日 06:34:42
 
 
 ---
