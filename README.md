@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 90.73%
+今年已经过去：█████████████████████████████████████████████░░░░░ 91.01%
 
-> ⏰ 最后更新于 2025年11月27日 06:34:16
+> ⏰ 最后更新于 2025年11月28日 06:34:01
 
 
 ---
