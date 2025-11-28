@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)](https://cn.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)](https://cn.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 91.01%
+今年已经过去：█████████████████████████████████████████████░░░░░ 91.28%
 
-> ⏰ 最后更新于 2025年11月28日 06:34:01
+> ⏰ 最后更新于 2025年11月29日 06:33:38
 
 
 ---
