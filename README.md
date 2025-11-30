@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 91.56%
+今年已经过去：█████████████████████████████████████████████░░░░░ 91.83%
 
-> ⏰ 最后更新于 2025年11月30日 06:33:56
+> ⏰ 最后更新于 2025年12月01日 06:34:07
 
 
 ---
