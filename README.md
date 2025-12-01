@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 91.83%
+今年已经过去：██████████████████████████████████████████████░░░░ 92.11%
 
-> ⏰ 最后更新于 2025年12月01日 06:34:07
+> ⏰ 最后更新于 2025年12月02日 06:34:39
 
 
 ---
