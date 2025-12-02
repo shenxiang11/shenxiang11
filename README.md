@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 92.11%
+今年已经过去：██████████████████████████████████████████████░░░░ 92.38%
 
-> ⏰ 最后更新于 2025年12月02日 06:34:39
+> ⏰ 最后更新于 2025年12月03日 06:33:35
 
 
 ---
