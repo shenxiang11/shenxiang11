@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 92.66%
+今年已经过去：██████████████████████████████████████████████░░░░ 92.93%
 
-> ⏰ 最后更新于 2025年12月04日 06:35:16
+> ⏰ 最后更新于 2025年12月05日 06:34:24
 
 
 ---
