@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)](https://cn.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Maya site of Copán, Honduras (© diegograndi/Getty Images)](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 92.93%
+今年已经过去：██████████████████████████████████████████████░░░░ 93.21%
 
-> ⏰ 最后更新于 2025年12月05日 06:34:24
+> ⏰ 最后更新于 2025年12月06日 06:34:34
 
 
 ---
