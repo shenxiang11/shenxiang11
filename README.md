@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Maya site of Copán, Honduras (© diegograndi/Getty Images)](https://cn.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 93.21%
+今年已经过去：██████████████████████████████████████████████░░░░ 93.48%
 
-> ⏰ 最后更新于 2025年12月06日 06:34:34
+> ⏰ 最后更新于 2025年12月07日 06:33:58
 
 
 ---
