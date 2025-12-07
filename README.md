@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 93.48%
+今年已经过去：██████████████████████████████████████████████░░░░ 93.76%
 
-> ⏰ 最后更新于 2025年12月07日 06:33:58
+> ⏰ 最后更新于 2025年12月08日 06:33:44
 
 
 ---
