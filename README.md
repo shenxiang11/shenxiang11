@@ -1,13 +1,13 @@
 ## 每日一图
 
-![USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)](https://cn.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████░░░░ 93.76%
+今年已经过去：███████████████████████████████████████████████░░░ 94.03%
 
-> ⏰ 最后更新于 2025年12月08日 06:33:44
+> ⏰ 最后更新于 2025年12月09日 06:35:01
 
 
 ---
