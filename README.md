@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 94.03%
+今年已经过去：███████████████████████████████████████████████░░░ 94.31%
 
-> ⏰ 最后更新于 2025年12月09日 06:35:01
+> ⏰ 最后更新于 2025年12月10日 06:33:46
 
 
 ---
