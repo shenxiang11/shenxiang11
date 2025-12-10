@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)](https://cn.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 94.31%
+今年已经过去：███████████████████████████████████████████████░░░ 94.58%
 
-> ⏰ 最后更新于 2025年12月10日 06:33:46
+> ⏰ 最后更新于 2025年12月11日 06:35:16
 
 
 ---
