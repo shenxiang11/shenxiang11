@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Spotted poinsettia (© DigiPub/Getty Images)](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 94.86%
+今年已经过去：███████████████████████████████████████████████░░░ 95.13%
 
-> ⏰ 最后更新于 2025年12月12日 06:35:39
+> ⏰ 最后更新于 2025年12月13日 06:35:03
 
 
 ---
