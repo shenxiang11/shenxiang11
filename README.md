@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spotted poinsettia (© DigiPub/Getty Images)](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 95.13%
+今年已经过去：███████████████████████████████████████████████░░░ 95.40%
 
-> ⏰ 最后更新于 2025年12月13日 06:35:03
+> ⏰ 最后更新于 2025年12月14日 06:34:14
 
 
 ---
