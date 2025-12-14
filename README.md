@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 95.40%
+今年已经过去：███████████████████████████████████████████████░░░ 95.68%
 
-> ⏰ 最后更新于 2025年12月14日 06:34:14
+> ⏰ 最后更新于 2025年12月15日 06:33:59
 
 
 ---
