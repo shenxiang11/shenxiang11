@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 95.68%
+今年已经过去：███████████████████████████████████████████████░░░ 95.95%
 
-> ⏰ 最后更新于 2025年12月15日 06:33:59
+> ⏰ 最后更新于 2025年12月16日 06:35:37
 
 
 ---
