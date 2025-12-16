@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████████░░░ 95.95%
+今年已经过去：████████████████████████████████████████████████░░ 96.23%
 
-> ⏰ 最后更新于 2025年12月16日 06:35:37
+> ⏰ 最后更新于 2025年12月17日 06:34:57
 
 
 ---
