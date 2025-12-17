@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 96.23%
+今年已经过去：████████████████████████████████████████████████░░ 96.50%
 
-> ⏰ 最后更新于 2025年12月17日 06:34:57
+> ⏰ 最后更新于 2025年12月18日 06:35:40
 
 
 ---
