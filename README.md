@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 96.50%
+今年已经过去：████████████████████████████████████████████████░░ 96.78%
 
-> ⏰ 最后更新于 2025年12月18日 06:35:40
+> ⏰ 最后更新于 2025年12月19日 06:35:11
 
 
 ---
