@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 96.78%
+今年已经过去：████████████████████████████████████████████████░░ 97.05%
 
-> ⏰ 最后更新于 2025年12月19日 06:35:11
+> ⏰ 最后更新于 2025年12月20日 06:34:54
 
 
 ---
