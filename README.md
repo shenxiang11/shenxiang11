@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Christmas star lanterns, Germany (© artas/Getty Images)](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 97.05%
+今年已经过去：████████████████████████████████████████████████░░ 97.33%
 
-> ⏰ 最后更新于 2025年12月20日 06:34:54
+> ⏰ 最后更新于 2025年12月21日 06:34:09
 
 
 ---
