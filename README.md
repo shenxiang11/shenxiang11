@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Christmas star lanterns, Germany (© artas/Getty Images)](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Dawn light through frosty trees, Sweden (© Schon/Getty Images)](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 97.33%
+今年已经过去：████████████████████████████████████████████████░░ 97.60%
 
-> ⏰ 最后更新于 2025年12月21日 06:34:09
+> ⏰ 最后更新于 2025年12月22日 06:34:39
 
 
 ---
