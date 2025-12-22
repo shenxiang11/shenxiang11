@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Dawn light through frosty trees, Sweden (© Schon/Getty Images)](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![&#39;The Nutcracker&#39; performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 97.60%
+今年已经过去：████████████████████████████████████████████████░░ 97.88%
 
-> ⏰ 最后更新于 2025年12月22日 06:34:39
+> ⏰ 最后更新于 2025年12月23日 06:35:33
 
 
 ---
