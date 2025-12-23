@@ -1,13 +1,13 @@
 ## 每日一图
 
-![&#39;The Nutcracker&#39; performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████████░░ 97.88%
+今年已经过去：█████████████████████████████████████████████████░ 98.15%
 
-> ⏰ 最后更新于 2025年12月23日 06:35:33
+> ⏰ 最后更新于 2025年12月24日 06:34:57
 
 
 ---
