@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 98.15%
+今年已经过去：█████████████████████████████████████████████████░ 98.43%
 
-> ⏰ 最后更新于 2025年12月24日 06:34:57
+> ⏰ 最后更新于 2025年12月25日 06:35:12
 
 
 ---
