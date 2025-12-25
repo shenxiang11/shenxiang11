@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 98.43%
+今年已经过去：█████████████████████████████████████████████████░ 98.70%
 
-> ⏰ 最后更新于 2025年12月25日 06:35:12
+> ⏰ 最后更新于 2025年12月26日 06:35:11
 
 
 ---
