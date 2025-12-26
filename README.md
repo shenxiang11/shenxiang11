@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 98.70%
+今年已经过去：█████████████████████████████████████████████████░ 98.98%
 
-> ⏰ 最后更新于 2025年12月26日 06:35:11
+> ⏰ 最后更新于 2025年12月27日 06:35:04
 
 
 ---
