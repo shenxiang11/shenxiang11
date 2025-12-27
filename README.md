@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Plate ice along Lake Superior, Grand Marais, Minnesota (© wanderluster/Getty Images)](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 98.98%
+今年已经过去：█████████████████████████████████████████████████░ 99.25%
 
-> ⏰ 最后更新于 2025年12月27日 06:35:04
+> ⏰ 最后更新于 2025年12月28日 06:34:45
 
 
 ---
