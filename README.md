@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)](https://cn.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 99.53%
+今年已经过去：█████████████████████████████████████████████████░ 99.80%
 
-> ⏰ 最后更新于 2025年12月29日 06:35:06
+> ⏰ 最后更新于 2025年12月30日 06:35:06
 
 
 ---
