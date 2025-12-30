@@ -1,13 +1,13 @@
 ## 每日一图
 
-![St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)](https://cn.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)](https://cn.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████████░ 99.80%
+今年已经过去：██████████████████████████████████████████████████ 100.08%
 
-> ⏰ 最后更新于 2025年12月30日 06:35:06
+> ⏰ 最后更新于 2025年12月31日 06:35:12
 
 
 ---
