@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)](https://cn.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![New Year&#39;s Eve, Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████████████ 100.08%
+今年已经过去：░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 0.08%
 
-> ⏰ 最后更新于 2025年12月31日 06:35:12
+> ⏰ 最后更新于 2026年01月01日 06:35:28
 
 
 ---
