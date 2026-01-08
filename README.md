@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Turret Arch framed by North Window in Arches National Park, Utah (© Jim Patterson/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Starling murmuration over the ruins of Brighton&#39;s West Pier, England (© Philip Reeve/Photodisc/Getty Images)](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.00%
+今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.27%
 
-> ⏰ 最后更新于 2026年01月08日 06:36:02
+> ⏰ 最后更新于 2026年01月09日 06:36:29
 
 
 ---
