@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Starling murmuration over the ruins of Brighton&#39;s West Pier, England (© Philip Reeve/Photodisc/Getty Images)](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Giant redwood trees in Muir Woods National Monument, California (© photo by canderson/Getty Images)](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.27%
+今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.55%
 
-> ⏰ 最后更新于 2026年01月09日 06:36:29
+> ⏰ 最后更新于 2026年01月10日 06:36:11
 
 
 ---
