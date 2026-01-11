@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 2.82%
+今年已经过去：█░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 3.10%
 
-> ⏰ 最后更新于 2026年01月11日 06:35:21
+> ⏰ 最后更新于 2026年01月12日 06:35:12
 
 
 ---
