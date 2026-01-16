@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 4.20%
+今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 4.47%
 
-> ⏰ 最后更新于 2026年01月16日 06:36:28
+> ⏰ 最后更新于 2026年01月17日 06:36:17
 
 
 ---
