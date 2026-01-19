@@ -1,13 +1,13 @@
 ## 每日一图
 
-![White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)](https://cn.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 5.02%
+今年已经过去：██░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 5.30%
 
-> ⏰ 最后更新于 2026年01月19日 06:35:05
+> ⏰ 最后更新于 2026年01月20日 06:36:19
 
 
 ---
