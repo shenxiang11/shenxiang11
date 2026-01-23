@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)](https://cn.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 6.12%
+今年已经过去：███░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 6.39%
 
-> ⏰ 最后更新于 2026年01月23日 06:37:40
+> ⏰ 最后更新于 2026年01月24日 06:35:22
 
 
 ---
