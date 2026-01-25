@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)](https://cn.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)](https://cn.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 6.67%
+今年已经过去：███░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 6.94%
 
-> ⏰ 最后更新于 2026年01月25日 06:35:12
+> ⏰ 最后更新于 2026年01月26日 06:35:48
 
 
 ---
