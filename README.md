@@ -1,13 +1,13 @@
 ## 每日一图
 
-![St. Michael&#39;s Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 8.32%
+今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 8.59%
 
-> ⏰ 最后更新于 2026年01月31日 06:40:08
+> ⏰ 最后更新于 2026年02月01日 06:37:52
 
 
 ---
