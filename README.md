@@ -1,13 +1,13 @@
 ## 每日一图
 
-![US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Emerald Bay and Fannette Island, Lake Tahoe, California (© Bill Stevenson/Cavan Images)](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 8.87%
+今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 9.42%
 
-> ⏰ 最后更新于 2026年02月02日 06:38:52
+> ⏰ 最后更新于 2026年02月04日 06:41:11
 
 
 ---
