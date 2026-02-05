@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Rosa Parks in stained glass window, Shorter Community African Methodist Episcopal Church, Denver (© Cyrus McCrimmon/The Denver Post via Getty Images)](https://cn.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 9.69%
+今年已经过去：████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 9.97%
 
-> ⏰ 最后更新于 2026年02月05日 06:40:19
+> ⏰ 最后更新于 2026年02月06日 06:40:31
 
 
 ---
