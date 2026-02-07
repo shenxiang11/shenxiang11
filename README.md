@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ra Gusela peak at Giau Pass, near Cortina d&#39;Ampezzo, Italy (© Tomasz Podolski/Getty Images)](https://cn.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 10.24%
+今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 10.52%
 
-> ⏰ 最后更新于 2026年02月07日 06:39:44
+> ⏰ 最后更新于 2026年02月08日 06:40:21
 
 
 ---
