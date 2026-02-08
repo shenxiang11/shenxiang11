@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Corfu at night, Greece (© whitewizzard/Getty Images)](https://cn.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 10.52%
+今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 10.79%
 
-> ⏰ 最后更新于 2026年02月08日 06:40:21
+> ⏰ 最后更新于 2026年02月09日 06:40:28
 
 
 ---
