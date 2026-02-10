@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)](https://cn.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 11.07%
+今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 11.34%
 
-> ⏰ 最后更新于 2026年02月10日 06:42:36
+> ⏰ 最后更新于 2026年02月11日 06:42:54
 
 
 ---
