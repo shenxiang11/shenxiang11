@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 11.89%
+今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 12.16%
 
-> ⏰ 最后更新于 2026年02月13日 06:41:39
+> ⏰ 最后更新于 2026年02月14日 06:41:49
 
 
 ---
