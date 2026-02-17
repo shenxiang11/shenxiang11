@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lincoln Memorial, Washington, DC (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 12.99%
+今年已经过去：██████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 13.26%
 
-> ⏰ 最后更新于 2026年02月17日 06:40:38
+> ⏰ 最后更新于 2026年02月18日 06:41:39
 
 
 ---
