@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)](https://cn.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 14.09%
+今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 14.36%
 
-> ⏰ 最后更新于 2026年02月21日 06:40:09
+> ⏰ 最后更新于 2026年02月22日 06:38:22
 
 
 ---
