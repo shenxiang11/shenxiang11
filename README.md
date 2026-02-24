@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 14.91%
+今年已经过去：███████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 15.19%
 
-> ⏰ 最后更新于 2026年02月24日 06:43:04
+> ⏰ 最后更新于 2026年02月25日 06:41:59
 
 
 ---
