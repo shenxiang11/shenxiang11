@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Olo&#39;upena Falls, island of Moloka&#39;i, Hawaii (© Andrew Aylett/Getty Images)](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 16.01%
+今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 16.28%
 
-> ⏰ 最后更新于 2026年02月28日 06:38:45
+> ⏰ 最后更新于 2026年03月01日 06:37:18
 
 
 ---
