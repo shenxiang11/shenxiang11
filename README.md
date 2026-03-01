@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Olo&#39;upena Falls, island of Moloka&#39;i, Hawaii (© Andrew Aylett/Getty Images)](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 16.28%
+今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 16.56%
 
-> ⏰ 最后更新于 2026年03月01日 06:37:18
+> ⏰ 最后更新于 2026年03月02日 06:38:03
 
 
 ---
