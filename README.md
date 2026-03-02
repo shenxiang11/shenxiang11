@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 16.56%
+今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 16.83%
 
-> ⏰ 最后更新于 2026年03月02日 06:38:03
+> ⏰ 最后更新于 2026年03月03日 06:40:01
 
 
 ---
