@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-US3008233136_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)](https://cn.bing.com/th?id=OHR.BabyElephant_EN-US3103670102_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 16.83%
+今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 17.11%
 
-> ⏰ 最后更新于 2026年03月03日 06:40:01
+> ⏰ 最后更新于 2026年03月04日 06:40:55
 
 
 ---
