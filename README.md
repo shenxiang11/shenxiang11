@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)](https://cn.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 17.93%
+今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 18.21%
 
-> ⏰ 最后更新于 2026年03月07日 06:40:35
+> ⏰ 最后更新于 2026年03月08日 06:37:31
 
 
 ---
