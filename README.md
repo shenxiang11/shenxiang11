@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.PeachBloom_EN-US6957157989_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.31%
+今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.58%
 
-> ⏰ 最后更新于 2026年03月12日 06:38:33
+> ⏰ 最后更新于 2026年03月13日 06:39:25
 
 
 ---
