@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)](https://cn.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d&#39;Olonne, France (© Helmut Meyer zur Capellen/Alamy)](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.58%
+今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.86%
 
-> ⏰ 最后更新于 2026年03月13日 06:39:25
+> ⏰ 最后更新于 2026年03月14日 06:39:40
 
 
 ---
