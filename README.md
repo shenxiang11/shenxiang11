@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d&#39;Olonne, France (© Helmut Meyer zur Capellen/Alamy)](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 19.86%
+今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.13%
 
-> ⏰ 最后更新于 2026年03月14日 06:39:40
+> ⏰ 最后更新于 2026年03月15日 06:39:50
 
 
 ---
