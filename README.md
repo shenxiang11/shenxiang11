@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)](https://cn.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.41%
+今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.68%
 
-> ⏰ 最后更新于 2026年03月16日 06:40:33
+> ⏰ 最后更新于 2026年03月17日 06:42:04
 
 
 ---
