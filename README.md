@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Grianan of Aileach ring fort, Donegal, Ireland (© aluxum/Getty Images)](https://cn.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon (© Eric Vogt/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 20.96%
+今年已经过去：██████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 21.23%
 
-> ⏰ 最后更新于 2026年03月18日 06:42:05
+> ⏰ 最后更新于 2026年03月19日 06:40:58
 
 
 ---
