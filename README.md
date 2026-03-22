@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Letea Forest, Danube Delta, Romania (© Wild Wonders of Europe/Widstrand/Nature Picture Library)](https://cn.bing.com/th?id=OHR.LeteaForest_EN-US5404369914_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://cn.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 22.05%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 22.33%
 
-> ⏰ 最后更新于 2026年03月22日 06:39:10
+> ⏰ 最后更新于 2026年03月23日 06:39:35
 
 
 ---
