@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://cn.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 22.33%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 22.60%
 
-> ⏰ 最后更新于 2026年03月23日 06:39:35
+> ⏰ 最后更新于 2026年03月24日 06:41:47
 
 
 ---
