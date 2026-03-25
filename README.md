@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 22.88%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.15%
 
-> ⏰ 最后更新于 2026年03月25日 06:41:22
+> ⏰ 最后更新于 2026年03月26日 06:42:28
 
 
 ---
