@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://cn.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.15%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.43%
 
-> ⏰ 最后更新于 2026年03月26日 06:42:28
+> ⏰ 最后更新于 2026年03月27日 06:41:19
 
 
 ---
