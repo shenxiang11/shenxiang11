@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.43%
+今年已经过去：███████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 23.70%
 
-> ⏰ 最后更新于 2026年03月27日 06:41:19
+> ⏰ 最后更新于 2026年03月28日 06:41:57
 
 
 ---
