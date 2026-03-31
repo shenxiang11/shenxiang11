@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Demoiselle cranes, India (© Axel Gomille/Nature Picture Library)](https://cn.bing.com/th?id=OHR.IndiaCranes_EN-US6414900321_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)](https://cn.bing.com/th?id=OHR.ParadiseCave_EN-US6470755729_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 24.53%
+今年已经过去：████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 24.80%
 
-> ⏰ 最后更新于 2026年03月31日 06:42:27
+> ⏰ 最后更新于 2026年04月01日 06:41:56
 
 
 ---
