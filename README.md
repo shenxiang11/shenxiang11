@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 25.35%
+今年已经过去：████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 25.63%
 
-> ⏰ 最后更新于 2026年04月03日 06:41:38
+> ⏰ 最后更新于 2026年04月04日 06:42:07
 
 
 ---
