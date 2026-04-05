@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GrouseGuff_EN-US4212457538_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 25.90%
+今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 26.18%
 
-> ⏰ 最后更新于 2026年04月05日 06:41:08
+> ⏰ 最后更新于 2026年04月06日 06:41:33
 
 
 ---
