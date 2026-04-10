@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 27.27%
+今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 27.55%
 
-> ⏰ 最后更新于 2026年04月10日 06:42:55
+> ⏰ 最后更新于 2026年04月11日 06:42:38
 
 
 ---
