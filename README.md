@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![City lights streak below, taken from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 27.82%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.10%
 
-> ⏰ 最后更新于 2026年04月12日 06:41:46
+> ⏰ 最后更新于 2026年04月13日 06:42:17
 
 
 ---
