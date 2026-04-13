@@ -1,13 +1,13 @@
 ## 每日一图
 
-![City lights streak below, taken from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Milky Way over Anza-Borrego Desert State Park, California (© Kevin Key/Slworking)/Getty Images)](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.10%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.37%
 
-> ⏰ 最后更新于 2026年04月13日 06:42:17
+> ⏰ 最后更新于 2026年04月14日 06:43:20
 
 
 ---
