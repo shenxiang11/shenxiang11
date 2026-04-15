@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The Carrières des Lumières exhibit of Vincent Van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.65%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 28.92%
 
-> ⏰ 最后更新于 2026年04月15日 06:43:31
+> ⏰ 最后更新于 2026年04月16日 06:43:13
 
 
 ---
