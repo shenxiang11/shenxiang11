@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Skagit Valley Tulip Fields, Washington (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.20%
+今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.47%
 
-> ⏰ 最后更新于 2026年04月17日 06:42:52
+> ⏰ 最后更新于 2026年04月18日 06:42:52
 
 
 ---
