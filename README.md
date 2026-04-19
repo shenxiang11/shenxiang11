@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Books in the children&#39;s section of The New York Public Library, New York (© Ken Welsh/Alamy)](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 29.75%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.02%
 
-> ⏰ 最后更新于 2026年04月19日 06:42:15
+> ⏰ 最后更新于 2026年04月20日 06:42:13
 
 
 ---
