@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Books in the children&#39;s section of The New York Public Library, New York (© Ken Welsh/Alamy)](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.02%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.30%
 
-> ⏰ 最后更新于 2026年04月20日 06:42:13
+> ⏰ 最后更新于 2026年04月21日 06:43:16
 
 
 ---
