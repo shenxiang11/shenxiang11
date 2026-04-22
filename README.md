@@ -1,13 +1,13 @@
 ## 每日一图
 
-![European hedgehog, France (© Klein &amp; Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.57%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 30.85%
 
-> ⏰ 最后更新于 2026年04月22日 06:42:37
+> ⏰ 最后更新于 2026年04月23日 06:43:52
 
 
 ---
