@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Anne Hathaway&#39;s cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.12%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.40%
 
-> ⏰ 最后更新于 2026年04月24日 06:43:46
+> ⏰ 最后更新于 2026年04月25日 06:42:39
 
 
 ---
