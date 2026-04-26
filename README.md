@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.67%
+今年已经过去：███████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 31.94%
 
-> ⏰ 最后更新于 2026年04月26日 06:42:29
+> ⏰ 最后更新于 2026年04月27日 06:42:52
 
 
 ---
