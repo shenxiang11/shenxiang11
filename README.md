@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.22%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.49%
 
-> ⏰ 最后更新于 2026年04月28日 06:44:31
+> ⏰ 最后更新于 2026年04月29日 06:45:24
 
 
 ---
