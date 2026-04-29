@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.49%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 32.77%
 
-> ⏰ 最后更新于 2026年04月29日 06:45:24
+> ⏰ 最后更新于 2026年04月30日 06:45:20
 
 
 ---
