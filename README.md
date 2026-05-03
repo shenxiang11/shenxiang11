@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein &amp; Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.59%
+今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.87%
 
-> ⏰ 最后更新于 2026年05月03日 06:43:03
+> ⏰ 最后更新于 2026年05月04日 06:43:02
 
 
 ---
