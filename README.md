@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein &amp; Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 33.87%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.14%
 
-> ⏰ 最后更新于 2026年05月04日 06:43:02
+> ⏰ 最后更新于 2026年05月05日 06:45:23
 
 
 ---
