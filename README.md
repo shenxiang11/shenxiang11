@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.42%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.69%
 
-> ⏰ 最后更新于 2026年05月06日 06:45:10
+> ⏰ 最后更新于 2026年05月07日 06:44:14
 
 
 ---
