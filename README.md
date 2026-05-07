@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.69%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.97%
 
-> ⏰ 最后更新于 2026年05月07日 06:44:14
+> ⏰ 最后更新于 2026年05月08日 06:45:49
 
 
 ---
