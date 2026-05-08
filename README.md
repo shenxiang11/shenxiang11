@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)](https://cn.bing.com/th?id=OHR.Kofa_EN-US0655690866_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sardinian donkey mare and foal, France (© Klein &amp; Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 34.97%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.24%
 
-> ⏰ 最后更新于 2026年05月08日 06:45:49
+> ⏰ 最后更新于 2026年05月09日 06:45:09
 
 
 ---
