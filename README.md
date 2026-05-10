@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)](https://cn.bing.com/th?id=OHR.SkradinskiBuk_EN-US0750882952_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.52%
+今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.79%
 
-> ⏰ 最后更新于 2026年05月10日 06:43:22
+> ⏰ 最后更新于 2026年05月11日 06:43:50
 
 
 ---
