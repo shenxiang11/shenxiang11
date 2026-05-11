@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)](https://cn.bing.com/th?id=OHR.MotherCub_EN-US0916425414_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 35.79%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.07%
 
-> ⏰ 最后更新于 2026年05月11日 06:43:50
+> ⏰ 最后更新于 2026年05月12日 06:45:01
 
 
 ---
