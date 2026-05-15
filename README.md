@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)](https://cn.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 36.89%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.17%
 
-> ⏰ 最后更新于 2026年05月15日 06:45:53
+> ⏰ 最后更新于 2026年05月16日 06:44:52
 
 
 ---
