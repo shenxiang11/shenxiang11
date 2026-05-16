@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)](https://cn.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)](https://cn.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.17%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.44%
 
-> ⏰ 最后更新于 2026年05月16日 06:44:52
+> ⏰ 最后更新于 2026年05月17日 06:43:24
 
 
 ---
