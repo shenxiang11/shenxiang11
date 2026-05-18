@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.71%
+今年已经过去：██████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 37.99%
 
-> ⏰ 最后更新于 2026年05月18日 06:44:42
+> ⏰ 最后更新于 2026年05月19日 06:45:21
 
 
 ---
