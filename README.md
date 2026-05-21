@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)](https://cn.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tea terraces in Sichuan Province, China (© lzf/Shutterstock)](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.54%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.81%
 
-> ⏰ 最后更新于 2026年05月21日 06:54:46
+> ⏰ 最后更新于 2026年05月22日 06:51:02
 
 
 ---
