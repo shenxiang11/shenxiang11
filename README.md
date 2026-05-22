@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tea terraces in Sichuan Province, China (© lzf/Shutterstock)](https://cn.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 38.81%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.09%
 
-> ⏰ 最后更新于 2026年05月22日 06:51:02
+> ⏰ 最后更新于 2026年05月23日 06:45:35
 
 
 ---
