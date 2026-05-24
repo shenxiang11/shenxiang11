@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Turtles with butterflies (© Patrick Gallet/Getty Images)](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-US0786859772_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.36%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.64%
 
-> ⏰ 最后更新于 2026年05月24日 06:44:33
+> ⏰ 最后更新于 2026年05月25日 06:45:11
 
 
 ---
