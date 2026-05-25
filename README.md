@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.64%
+今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.91%
 
-> ⏰ 最后更新于 2026年05月25日 06:45:11
+> ⏰ 最后更新于 2026年05月26日 06:46:32
 
 
 ---
