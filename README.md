@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 39.91%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.19%
 
-> ⏰ 最后更新于 2026年05月26日 06:46:32
+> ⏰ 最后更新于 2026年05月27日 06:52:17
 
 
 ---
