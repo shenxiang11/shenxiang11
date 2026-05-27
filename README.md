@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.19%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.46%
 
-> ⏰ 最后更新于 2026年05月27日 06:52:17
+> ⏰ 最后更新于 2026年05月28日 06:57:21
 
 
 ---
