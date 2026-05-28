@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.46%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.74%
 
-> ⏰ 最后更新于 2026年05月28日 06:57:21
+> ⏰ 最后更新于 2026年05月29日 06:55:44
 
 
 ---
