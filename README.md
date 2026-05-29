@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)](https://cn.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 40.74%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 41.01%
 
-> ⏰ 最后更新于 2026年05月29日 06:55:44
+> ⏰ 最后更新于 2026年05月30日 06:54:06
 
 
 ---
