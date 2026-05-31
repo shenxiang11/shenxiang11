@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of Everglades National Park, Florida (© Tetra Images/Getty Images)](https://cn.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 41.29%
+今年已经过去：████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 41.56%
 
-> ⏰ 最后更新于 2026年05月31日 06:45:17
+> ⏰ 最后更新于 2026年06月01日 06:45:24
 
 
 ---
