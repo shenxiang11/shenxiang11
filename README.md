@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)](https://cn.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.11%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.39%
 
-> ⏰ 最后更新于 2026年06月03日 07:06:52
+> ⏰ 最后更新于 2026年06月04日 07:09:14
 
 
 ---
