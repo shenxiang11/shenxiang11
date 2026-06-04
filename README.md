@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)](https://cn.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Snowy egret preening, central Florida, USA (© Donald M. Jones/Minden Pictures)](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.39%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.66%
 
-> ⏰ 最后更新于 2026年06月04日 07:09:14
+> ⏰ 最后更新于 2026年06月05日 06:53:35
 
 
 ---
