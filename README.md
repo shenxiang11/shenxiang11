@@ -1,13 +1,13 @@
 ## 每日一图
 
-![View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)](https://cn.bing.com/th?id=OHR.WedLapland_EN-US9813120088_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 42.94%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.21%
 
-> ⏰ 最后更新于 2026年06月06日 06:48:27
+> ⏰ 最后更新于 2026年06月07日 06:47:17
 
 
 ---
