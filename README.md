@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)](https://cn.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.21%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.48%
 
-> ⏰ 最后更新于 2026年06月07日 06:47:17
+> ⏰ 最后更新于 2026年06月08日 06:47:56
 
 
 ---
