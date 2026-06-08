@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)](https://cn.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lion&#39;s mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)](https://cn.bing.com/th?id=OHR.Cyanea_EN-US1146473249_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.48%
+今年已经过去：█████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 43.76%
 
-> ⏰ 最后更新于 2026年06月08日 06:47:56
+> ⏰ 最后更新于 2026年06月09日 06:57:20
 
 
 ---
