@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)](https://cn.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.04%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.31%
 
-> ⏰ 最后更新于 2026年06月10日 06:58:08
+> ⏰ 最后更新于 2026年06月11日 07:00:46
 
 
 ---
