@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://cn.bing.com/th?id=OHR.Limpets_EN-US1055673545_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.31%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.59%
 
-> ⏰ 最后更新于 2026年06月11日 07:00:46
+> ⏰ 最后更新于 2026年06月12日 07:00:27
 
 
 ---
