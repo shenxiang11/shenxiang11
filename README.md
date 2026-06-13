@@ -1,13 +1,13 @@
 ## 每日一图
 
-![European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunset in Badlands National Park, South Dakota, USA (© Troy Harrison/Getty Images)](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 44.86%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.13%
 
-> ⏰ 最后更新于 2026年06月13日 06:57:27
+> ⏰ 最后更新于 2026年06月14日 06:47:54
 
 
 ---
