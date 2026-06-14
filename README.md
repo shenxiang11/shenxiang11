@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunset in Badlands National Park, South Dakota, USA (© Troy Harrison/Getty Images)](https://cn.bing.com/th?id=OHR.BadSunset_EN-US5981956630_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![US flags surrounding the Washington Monument, Washington, DC  (© Orhan Cam/Shutterstock)](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.13%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.41%
 
-> ⏰ 最后更新于 2026年06月14日 06:47:54
+> ⏰ 最后更新于 2026年06月15日 06:50:36
 
 
 ---
