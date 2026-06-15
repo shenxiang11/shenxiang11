@@ -1,13 +1,13 @@
 ## 每日一图
 
-![US flags surrounding the Washington Monument, Washington, DC  (© Orhan Cam/Shutterstock)](https://cn.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.41%
+今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.69%
 
-> ⏰ 最后更新于 2026年06月15日 06:50:36
+> ⏰ 最后更新于 2026年06月16日 07:07:14
 
 
 ---
