@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░░ 45.96%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.23%
 
-> ⏰ 最后更新于 2026年06月17日 06:59:39
+> ⏰ 最后更新于 2026年06月18日 06:58:04
 
 
 ---
