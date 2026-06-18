@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.23%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.51%
 
-> ⏰ 最后更新于 2026年06月18日 06:58:04
+> ⏰ 最后更新于 2026年06月19日 07:05:17
 
 
 ---
