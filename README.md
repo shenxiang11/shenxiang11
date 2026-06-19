@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://cn.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)](https://cn.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.51%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 46.78%
 
-> ⏰ 最后更新于 2026年06月19日 07:05:17
+> ⏰ 最后更新于 2026年06月20日 06:44:48
 
 
 ---
