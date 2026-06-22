@@ -1,13 +1,13 @@
 ## 每日一图
 
-![King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.33%
+今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.61%
 
-> ⏰ 最后更新于 2026年06月22日 06:49:19
+> ⏰ 最后更新于 2026年06月23日 06:59:20
 
 
 ---
