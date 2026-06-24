@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Butterfly pollinating on yellow flower (© lzh/Getty Images)](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░░ 47.88%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.16%
 
-> ⏰ 最后更新于 2026年06月24日 06:50:40
+> ⏰ 最后更新于 2026年06月25日 06:51:03
 
 
 ---
