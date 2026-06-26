@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)](https://cn.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The River Thames, London, England (© Daniel Lange/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.43%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.70%
 
-> ⏰ 最后更新于 2026年06月26日 06:57:03
+> ⏰ 最后更新于 2026年06月27日 06:50:23
 
 
 ---
