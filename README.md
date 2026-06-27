@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The River Thames, London, England (© Daniel Lange/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)](https://cn.bing.com/th?id=OHR.BoneyardBeach_EN-US8247496696_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.70%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.98%
 
-> ⏰ 最后更新于 2026年06月27日 06:50:23
+> ⏰ 最后更新于 2026年06月28日 06:46:26
 
 
 ---
