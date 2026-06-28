@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)](https://cn.bing.com/th?id=OHR.BoneyardBeach_EN-US8247496696_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 48.98%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.25%
 
-> ⏰ 最后更新于 2026年06月28日 06:46:26
+> ⏰ 最后更新于 2026年06月29日 06:46:38
 
 
 ---
