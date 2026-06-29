@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.25%
+今年已经过去：████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░░ 49.53%
 
-> ⏰ 最后更新于 2026年06月29日 06:46:38
+> ⏰ 最后更新于 2026年06月30日 06:45:04
 
 
 ---
