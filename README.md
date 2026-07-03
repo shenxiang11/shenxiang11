@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)](https://cn.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.35%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.63%
 
-> ⏰ 最后更新于 2026年07月03日 06:48:10
+> ⏰ 最后更新于 2026年07月04日 06:46:36
 
 
 ---
