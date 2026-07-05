@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)](https://cn.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 50.90%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 51.18%
 
-> ⏰ 最后更新于 2026年07月05日 06:45:12
+> ⏰ 最后更新于 2026年07月06日 06:45:34
 
 
 ---
