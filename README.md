@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://cn.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 51.18%
+今年已经过去：█████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░░ 51.45%
 
-> ⏰ 最后更新于 2026年07月06日 06:45:34
+> ⏰ 最后更新于 2026年07月07日 06:48:45
 
 
 ---
