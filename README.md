@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.28%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.56%
 
-> ⏰ 最后更新于 2026年07月10日 06:52:43
+> ⏰ 最后更新于 2026年07月11日 07:25:31
 
 
 ---
