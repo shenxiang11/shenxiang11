@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.56%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.83%
 
-> ⏰ 最后更新于 2026年07月11日 07:25:31
+> ⏰ 最后更新于 2026年07月12日 07:13:54
 
 
 ---
