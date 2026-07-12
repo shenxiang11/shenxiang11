@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)](https://cn.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 52.83%
+今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.10%
 
-> ⏰ 最后更新于 2026年07月12日 07:13:54
+> ⏰ 最后更新于 2026年07月13日 07:12:36
 
 
 ---
