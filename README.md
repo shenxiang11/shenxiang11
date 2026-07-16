@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████░░░░░░░░░░░░░░░░░░░░░░░░ 53.93%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.20%
 
-> ⏰ 最后更新于 2026年07月16日 07:25:06
+> ⏰ 最后更新于 2026年07月17日 07:14:44
 
 
 ---
