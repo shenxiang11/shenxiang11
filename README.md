@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.20%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.48%
 
-> ⏰ 最后更新于 2026年07月17日 07:14:44
+> ⏰ 最后更新于 2026年07月18日 07:12:10
 
 
 ---
