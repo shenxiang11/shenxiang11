@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Devil&#39;s Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.48%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.75%
 
-> ⏰ 最后更新于 2026年07月18日 07:12:10
+> ⏰ 最后更新于 2026年07月19日 07:14:17
 
 
 ---
