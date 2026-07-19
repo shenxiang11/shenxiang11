@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Devil&#39;s Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 54.75%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.03%
 
-> ⏰ 最后更新于 2026年07月19日 07:14:17
+> ⏰ 最后更新于 2026年07月20日 07:23:05
 
 
 ---
