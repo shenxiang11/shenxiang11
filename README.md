@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Moon and Earth captured by the Artemis II crew (© NASA)](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.03%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.31%
 
-> ⏰ 最后更新于 2026年07月20日 07:23:05
+> ⏰ 最后更新于 2026年07月21日 07:27:22
 
 
 ---
