@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Moon and Earth captured by the Artemis II crew (© NASA)](https://cn.bing.com/th?id=OHR.Artemis_EN-US0683925849_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.31%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.58%
 
-> ⏰ 最后更新于 2026年07月21日 07:27:22
+> ⏰ 最后更新于 2026年07月22日 07:24:32
 
 
 ---
