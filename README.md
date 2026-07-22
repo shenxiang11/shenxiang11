@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.58%
+今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.85%
 
-> ⏰ 最后更新于 2026年07月22日 07:24:32
+> ⏰ 最后更新于 2026年07月23日 07:27:03
 
 
 ---
