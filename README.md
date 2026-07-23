@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)](https://cn.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Pink dahlia flower (© Harald Biebel/Getty Images)](https://cn.bing.com/th?id=OHR.PinkDahlia_EN-US1957205704_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████░░░░░░░░░░░░░░░░░░░░░░░ 55.85%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.13%
 
-> ⏰ 最后更新于 2026年07月23日 07:27:03
+> ⏰ 最后更新于 2026年07月24日 07:24:51
 
 
 ---
