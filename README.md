@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Pink dahlia flower (© Harald Biebel/Getty Images)](https://cn.bing.com/th?id=OHR.PinkDahlia_EN-US1957205704_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.13%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.40%
 
-> ⏰ 最后更新于 2026年07月24日 07:24:51
+> ⏰ 最后更新于 2026年07月25日 07:29:25
 
 
 ---
