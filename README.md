@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.40%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.68%
 
-> ⏰ 最后更新于 2026年07月25日 07:29:25
+> ⏰ 最后更新于 2026年07月26日 07:24:55
 
 
 ---
