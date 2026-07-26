@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://cn.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.68%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 56.95%
 
-> ⏰ 最后更新于 2026年07月26日 07:24:55
+> ⏰ 最后更新于 2026年07月27日 07:24:56
 
 
 ---
