@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)](https://cn.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.23%
+今年已经过去：████████████████████████████░░░░░░░░░░░░░░░░░░░░░░ 57.50%
 
-> ⏰ 最后更新于 2026年07月28日 07:30:36
+> ⏰ 最后更新于 2026年07月29日 07:26:46
 
 
 ---
