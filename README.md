@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)](https://cn.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.05%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.33%
 
-> ⏰ 最后更新于 2026年07月31日 07:29:25
+> ⏰ 最后更新于 2026年08月01日 07:27:07
 
 
 ---
