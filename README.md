@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)](https://cn.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.33%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.60%
 
-> ⏰ 最后更新于 2026年08月01日 07:27:07
+> ⏰ 最后更新于 2026年08月02日 07:23:49
 
 
 ---
