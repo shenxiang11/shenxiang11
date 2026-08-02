@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)](https://cn.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Helsinki&#39;s shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)](https://cn.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.60%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 58.88%
 
-> ⏰ 最后更新于 2026年08月02日 07:23:49
+> ⏰ 最后更新于 2026年08月03日 07:24:33
 
 
 ---
