@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.15%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.43%
 
-> ⏰ 最后更新于 2026年08月04日 07:31:55
+> ⏰ 最后更新于 2026年08月05日 07:28:52
 
 
 ---
