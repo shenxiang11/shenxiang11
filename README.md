@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.43%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.69%
 
-> ⏰ 最后更新于 2026年08月05日 07:28:52
+> ⏰ 最后更新于 2026年08月06日 06:45:37
 
 
 ---
