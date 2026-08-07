@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)](https://cn.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.69%
+今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.99%
 
-> ⏰ 最后更新于 2026年08月06日 06:45:37
+> ⏰ 最后更新于 2026年08月07日 08:25:41
 
 
 ---
