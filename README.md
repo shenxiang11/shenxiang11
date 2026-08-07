@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lime Kiln Lighthouse on San Juan Island, Washington State (© Edmund Lowe Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████░░░░░░░░░░░░░░░░░░░░░ 59.99%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.24%
 
-> ⏰ 最后更新于 2026年08月07日 08:25:41
+> ⏰ 最后更新于 2026年08月08日 06:42:18
 
 
 ---
