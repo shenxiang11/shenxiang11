@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Joshua Tree National Park, California (© JJ Landscapes/Getty Images)](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 60.79%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.07%
 
-> ⏰ 最后更新于 2026年08月10日 06:40:57
+> ⏰ 最后更新于 2026年08月11日 06:42:16
 
 
 ---
