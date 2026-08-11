@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Joshua Tree National Park, California (© JJ Landscapes/Getty Images)](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.07%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.34%
 
-> ⏰ 最后更新于 2026年08月11日 06:42:16
+> ⏰ 最后更新于 2026年08月12日 06:42:52
 
 
 ---
