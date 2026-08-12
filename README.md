@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.34%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.62%
 
-> ⏰ 最后更新于 2026年08月12日 06:42:52
+> ⏰ 最后更新于 2026年08月13日 06:42:46
 
 
 ---
