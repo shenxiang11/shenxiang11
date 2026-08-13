@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.62%
+今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.89%
 
-> ⏰ 最后更新于 2026年08月13日 06:42:46
+> ⏰ 最后更新于 2026年08月14日 06:42:55
 
 
 ---
