@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████░░░░░░░░░░░░░░░░░░░░ 61.89%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.16%
 
-> ⏰ 最后更新于 2026年08月14日 06:42:55
+> ⏰ 最后更新于 2026年08月15日 06:37:09
 
 
 ---
