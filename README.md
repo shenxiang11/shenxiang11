@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.16%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.44%
 
-> ⏰ 最后更新于 2026年08月15日 06:37:09
+> ⏰ 最后更新于 2026年08月16日 06:36:21
 
 
 ---
