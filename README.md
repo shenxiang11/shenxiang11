@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.44%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.71%
 
-> ⏰ 最后更新于 2026年08月16日 06:36:21
+> ⏰ 最后更新于 2026年08月17日 06:35:50
 
 
 ---
