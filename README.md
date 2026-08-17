@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.71%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.99%
 
-> ⏰ 最后更新于 2026年08月17日 06:35:50
+> ⏰ 最后更新于 2026年08月18日 06:37:30
 
 
 ---
