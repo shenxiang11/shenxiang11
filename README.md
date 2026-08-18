@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 62.99%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.26%
 
-> ⏰ 最后更新于 2026年08月18日 06:37:30
+> ⏰ 最后更新于 2026年08月19日 06:37:42
 
 
 ---
