@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)](https://cn.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![NASA&#39;s Langley Research Center mounted the Navy&#39;s Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.26%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.54%
 
-> ⏰ 最后更新于 2026年08月19日 06:37:42
+> ⏰ 最后更新于 2026年08月20日 06:37:29
 
 
 ---
