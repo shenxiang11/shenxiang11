@@ -1,13 +1,13 @@
 ## 每日一图
 
-![NASA&#39;s Langley Research Center mounted the Navy&#39;s Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)](https://cn.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.54%
+今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.81%
 
-> ⏰ 最后更新于 2026年08月20日 06:37:29
+> ⏰ 最后更新于 2026年08月21日 06:39:02
 
 
 ---
