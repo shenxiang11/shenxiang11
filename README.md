@@ -1,13 +1,13 @@
 ## 每日一图
 
-![An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)](https://cn.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████░░░░░░░░░░░░░░░░░░░ 63.81%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.09%
 
-> ⏰ 最后更新于 2026年08月21日 06:39:02
+> ⏰ 最后更新于 2026年08月22日 06:37:34
 
 
 ---
