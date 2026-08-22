@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)](https://cn.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.09%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.36%
 
-> ⏰ 最后更新于 2026年08月22日 06:37:34
+> ⏰ 最后更新于 2026年08月23日 06:36:29
 
 
 ---
