@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Brooklyn Bridge, New York City (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.64%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.91%
 
-> ⏰ 最后更新于 2026年08月24日 06:36:16
+> ⏰ 最后更新于 2026年08月25日 06:38:48
 
 
 ---
