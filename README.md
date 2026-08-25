@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Brooklyn Bridge, New York City (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 64.91%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.19%
 
-> ⏰ 最后更新于 2026年08月25日 06:38:48
+> ⏰ 最后更新于 2026年08月26日 06:39:15
 
 
 ---
