@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.19%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.47%
 
-> ⏰ 最后更新于 2026年08月26日 06:39:15
+> ⏰ 最后更新于 2026年08月27日 07:35:01
 
 
 ---
