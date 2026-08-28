@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.47%
+今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.77%
 
-> ⏰ 最后更新于 2026年08月27日 07:35:01
+> ⏰ 最后更新于 2026年08月28日 09:14:17
 
 
 ---
