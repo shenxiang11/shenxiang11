@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://cn.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)](https://cn.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████░░░░░░░░░░░░░░░░░░ 65.77%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.01%
 
-> ⏰ 最后更新于 2026年08月28日 09:14:17
+> ⏰ 最后更新于 2026年08月29日 06:30:49
 
 
 ---
