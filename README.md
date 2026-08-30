@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.28%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.56%
 
-> ⏰ 最后更新于 2026年08月30日 06:30:48
+> ⏰ 最后更新于 2026年08月31日 06:30:41
 
 
 ---
