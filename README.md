@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.56%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.83%
 
-> ⏰ 最后更新于 2026年08月31日 06:30:41
+> ⏰ 最后更新于 2026年09月01日 06:30:39
 
 
 ---
