@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 66.83%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.11%
 
-> ⏰ 最后更新于 2026年09月01日 06:30:39
+> ⏰ 最后更新于 2026年09月02日 06:30:46
 
 
 ---
