@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)](https://cn.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.11%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.38%
 
-> ⏰ 最后更新于 2026年09月02日 06:30:46
+> ⏰ 最后更新于 2026年09月03日 06:31:41
 
 
 ---
