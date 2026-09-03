@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)](https://cn.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)](https://cn.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.38%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.66%
 
-> ⏰ 最后更新于 2026年09月03日 06:31:41
+> ⏰ 最后更新于 2026年09月04日 06:34:42
 
 
 ---
