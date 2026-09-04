@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)](https://cn.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.66%
+今年已经过去：█████████████████████████████████░░░░░░░░░░░░░░░░░ 67.93%
 
-> ⏰ 最后更新于 2026年09月04日 06:34:42
+> ⏰ 最后更新于 2026年09月05日 06:30:41
 
 
 ---
