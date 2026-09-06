@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.21%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.48%
 
-> ⏰ 最后更新于 2026年09月06日 06:30:38
+> ⏰ 最后更新于 2026年09月07日 06:30:35
 
 
 ---
