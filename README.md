@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)](https://cn.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![&#39;Industries of California&#39; mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.48%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 68.76%
 
-> ⏰ 最后更新于 2026年09月07日 06:30:35
+> ⏰ 最后更新于 2026年09月08日 06:30:34
 
 
 ---
