@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.03%
+今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.31%
 
-> ⏰ 最后更新于 2026年09月09日 06:30:36
+> ⏰ 最后更新于 2026年09月10日 06:30:45
 
 
 ---
