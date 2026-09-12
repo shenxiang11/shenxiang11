@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)](https://cn.bing.com/th?id=OHR.Flight93_EN-US5966783443_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████░░░░░░░░░░░░░░░░ 69.85%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.13%
 
-> ⏰ 最后更新于 2026年09月12日 06:30:40
+> ⏰ 最后更新于 2026年09月13日 06:30:59
 
 
 ---
