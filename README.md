@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Field of kochia plants, China (© lingqi xie/Getty Images)](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.40%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.68%
 
-> ⏰ 最后更新于 2026年09月14日 06:30:50
+> ⏰ 最后更新于 2026年09月15日 06:31:24
 
 
 ---
