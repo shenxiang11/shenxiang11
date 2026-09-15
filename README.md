@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Field of kochia plants, China (© lingqi xie/Getty Images)](https://cn.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.68%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.95%
 
-> ⏰ 最后更新于 2026年09月15日 06:31:24
+> ⏰ 最后更新于 2026年09月16日 06:31:04
 
 
 ---
