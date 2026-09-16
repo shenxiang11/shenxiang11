@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)](https://cn.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 70.95%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.23%
 
-> ⏰ 最后更新于 2026年09月16日 06:31:04
+> ⏰ 最后更新于 2026年09月17日 06:31:02
 
 
 ---
