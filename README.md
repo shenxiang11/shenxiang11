@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)](https://cn.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.Santenay_EN-US5299702509_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.23%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.50%
 
-> ⏰ 最后更新于 2026年09月17日 06:31:02
+> ⏰ 最后更新于 2026年09月18日 06:30:37
 
 
 ---
