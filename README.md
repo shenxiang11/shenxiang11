@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.Santenay_EN-US5299702509_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.50%
+今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.78%
 
-> ⏰ 最后更新于 2026年09月18日 06:30:37
+> ⏰ 最后更新于 2026年09月19日 06:30:46
 
 
 ---
