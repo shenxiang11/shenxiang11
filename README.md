@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████░░░░░░░░░░░░░░░ 71.78%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.05%
 
-> ⏰ 最后更新于 2026年09月19日 06:30:46
+> ⏰ 最后更新于 2026年09月20日 06:30:40
 
 
 ---
