@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.05%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.33%
 
-> ⏰ 最后更新于 2026年09月20日 06:30:40
+> ⏰ 最后更新于 2026年09月21日 06:30:35
 
 
 ---
