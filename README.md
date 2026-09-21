@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.33%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.60%
 
-> ⏰ 最后更新于 2026年09月21日 06:30:35
+> ⏰ 最后更新于 2026年09月22日 06:32:23
 
 
 ---
