@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Autumn aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.FallAspens_ROW2359837997_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.60%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.88%
 
-> ⏰ 最后更新于 2026年09月22日 06:32:23
+> ⏰ 最后更新于 2026年09月23日 06:31:09
 
 
 ---
