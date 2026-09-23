@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Autumn aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.FallAspens_ROW2359837997_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 72.88%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.15%
 
-> ⏰ 最后更新于 2026年09月23日 06:31:09
+> ⏰ 最后更新于 2026年09月24日 06:30:47
 
 
 ---
