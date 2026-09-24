@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)](https://cn.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.15%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.43%
 
-> ⏰ 最后更新于 2026年09月24日 06:30:47
+> ⏰ 最后更新于 2026年09月25日 06:31:47
 
 
 ---
