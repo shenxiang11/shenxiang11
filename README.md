@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.70%
+今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.98%
 
-> ⏰ 最后更新于 2026年09月26日 06:32:29
+> ⏰ 最后更新于 2026年09月27日 06:31:28
 
 
 ---
