@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████░░░░░░░░░░░░░░ 73.98%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.25%
 
-> ⏰ 最后更新于 2026年09月27日 06:31:28
+> ⏰ 最后更新于 2026年09月28日 06:33:16
 
 
 ---
