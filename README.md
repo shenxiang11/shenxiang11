@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.53%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.80%
 
-> ⏰ 最后更新于 2026年09月29日 06:32:54
+> ⏰ 最后更新于 2026年09月30日 06:34:09
 
 
 ---
