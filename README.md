@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)](https://cn.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 74.80%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.08%
 
-> ⏰ 最后更新于 2026年09月30日 06:34:09
+> ⏰ 最后更新于 2026年10月01日 06:35:01
 
 
 ---
