@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.08%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.35%
 
-> ⏰ 最后更新于 2026年10月01日 06:35:01
+> ⏰ 最后更新于 2026年10月02日 06:33:22
 
 
 ---
