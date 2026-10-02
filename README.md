@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.35%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.62%
 
-> ⏰ 最后更新于 2026年10月02日 06:33:22
+> ⏰ 最后更新于 2026年10月03日 06:34:06
 
 
 ---
