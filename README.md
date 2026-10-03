@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska (© Danny Green/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.62%
+今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.91%
 
-> ⏰ 最后更新于 2026年10月03日 06:34:06
+> ⏰ 最后更新于 2026年10月04日 07:21:01
 
 
 ---
