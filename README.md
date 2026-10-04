@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska (© Danny Green/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, June 15, 2022 (© EVA MARIE UZCATEGUI/Getty Images)](https://cn.bing.com/th?id=OHR.ArtemisRocket_EN-US5256990037_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████░░░░░░░░░░░░░ 75.91%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.17%
 
-> ⏰ 最后更新于 2026年10月04日 07:21:01
+> ⏰ 最后更新于 2026年10月05日 06:33:30
 
 
 ---
