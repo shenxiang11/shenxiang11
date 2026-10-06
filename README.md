@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)](https://cn.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://cn.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.45%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.72%
 
-> ⏰ 最后更新于 2026年10月06日 06:33:50
+> ⏰ 最后更新于 2026年10月07日 06:35:09
 
 
 ---
