@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://cn.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)](https://cn.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 76.72%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.00%
 
-> ⏰ 最后更新于 2026年10月07日 06:35:09
+> ⏰ 最后更新于 2026年10月08日 06:34:55
 
 
 ---
