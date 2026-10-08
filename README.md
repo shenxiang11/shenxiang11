@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)](https://cn.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.00%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.27%
 
-> ⏰ 最后更新于 2026年10月08日 06:34:55
+> ⏰ 最后更新于 2026年10月09日 06:35:53
 
 
 ---
