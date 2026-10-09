@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)](https://cn.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.27%
+今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.55%
 
-> ⏰ 最后更新于 2026年10月09日 06:35:53
+> ⏰ 最后更新于 2026年10月10日 06:35:47
 
 
 ---
