@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Glade Creek Grist Mill, Babcock State Park, West Virginia (© dszc/Getty Images)](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████░░░░░░░░░░░░ 77.82%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.10%
 
-> ⏰ 最后更新于 2026年10月11日 06:34:38
+> ⏰ 最后更新于 2026年10月12日 06:35:32
 
 
 ---
