@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Glade Creek Grist Mill, Babcock State Park, West Virginia (© dszc/Getty Images)](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.10%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.37%
 
-> ⏰ 最后更新于 2026年10月12日 06:35:32
+> ⏰ 最后更新于 2026年10月13日 06:36:00
 
 
 ---
