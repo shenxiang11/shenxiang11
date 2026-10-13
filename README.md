@@ -1,13 +1,13 @@
 ## 每日一图
 
-![White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)](https://cn.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.37%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.65%
 
-> ⏰ 最后更新于 2026年10月13日 06:36:00
+> ⏰ 最后更新于 2026年10月14日 06:31:57
 
 
 ---
