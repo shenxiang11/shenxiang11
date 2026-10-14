@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.65%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.92%
 
-> ⏰ 最后更新于 2026年10月14日 06:31:57
+> ⏰ 最后更新于 2026年10月15日 06:32:18
 
 
 ---
