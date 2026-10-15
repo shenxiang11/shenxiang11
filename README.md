@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)](https://cn.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![View of the Wroclaw Market Square from the Witches&#39; Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 78.92%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.20%
 
-> ⏰ 最后更新于 2026年10月15日 06:32:18
+> ⏰ 最后更新于 2026年10月16日 06:32:56
 
 
 ---
