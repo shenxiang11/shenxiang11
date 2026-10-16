@@ -1,13 +1,13 @@
 ## 每日一图
 
-![View of the Wroclaw Market Square from the Witches&#39; Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.20%
+今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.47%
 
-> ⏰ 最后更新于 2026年10月16日 06:32:56
+> ⏰ 最后更新于 2026年10月17日 06:32:30
 
 
 ---
