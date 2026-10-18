@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Life-size replica of Chauvet  cave art in Vallon-Pont-d&#39;Arc, France (© Audrey Poree/Alamy)](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████░░░░░░░░░░░ 79.74%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.02%
 
-> ⏰ 最后更新于 2026年10月18日 06:30:42
+> ⏰ 最后更新于 2026年10月19日 06:31:10
 
 
 ---
