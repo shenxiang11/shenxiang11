@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.29%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.57%
 
-> ⏰ 最后更新于 2026年10月20日 06:32:32
+> ⏰ 最后更新于 2026年10月21日 06:32:27
 
 
 ---
