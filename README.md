@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.57%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.84%
 
-> ⏰ 最后更新于 2026年10月21日 06:32:27
+> ⏰ 最后更新于 2026年10月22日 06:34:22
 
 
 ---
