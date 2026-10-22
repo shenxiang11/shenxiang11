@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 80.84%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.12%
 
-> ⏰ 最后更新于 2026年10月22日 06:34:22
+> ⏰ 最后更新于 2026年10月23日 06:32:20
 
 
 ---
