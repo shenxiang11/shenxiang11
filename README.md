@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.39%
+今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.67%
 
-> ⏰ 最后更新于 2026年10月24日 06:32:48
+> ⏰ 最后更新于 2026年10月25日 06:31:50
 
 
 ---
