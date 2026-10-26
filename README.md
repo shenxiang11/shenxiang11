@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████░░░░░░░░░░ 81.94%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.22%
 
-> ⏰ 最后更新于 2026年10月26日 06:31:21
+> ⏰ 最后更新于 2026年10月27日 06:36:05
 
 
 ---
