@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.22%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.49%
 
-> ⏰ 最后更新于 2026年10月27日 06:36:05
+> ⏰ 最后更新于 2026年10月28日 06:30:33
 
 
 ---
