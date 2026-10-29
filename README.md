@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)](https://cn.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 82.77%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.04%
 
-> ⏰ 最后更新于 2026年10月29日 06:30:39
+> ⏰ 最后更新于 2026年10月30日 06:30:46
 
 
 ---
