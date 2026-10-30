@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.04%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.32%
 
-> ⏰ 最后更新于 2026年10月30日 06:30:46
+> ⏰ 最后更新于 2026年10月31日 06:30:33
 
 
 ---
