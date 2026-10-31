@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![St. Bartholomew&#39;s Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.32%
+今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.59%
 
-> ⏰ 最后更新于 2026年10月31日 06:30:33
+> ⏰ 最后更新于 2026年11月01日 06:30:35
 
 
 ---
