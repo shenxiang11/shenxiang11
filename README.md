@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)](https://cn.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)](https://cn.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████░░░░░░░░░ 83.87%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.14%
 
-> ⏰ 最后更新于 2026年11月02日 06:30:36
+> ⏰ 最后更新于 2026年11月03日 06:30:34
 
 
 ---
