@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)](https://cn.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![People rowing among colorful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.42%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.69%
 
-> ⏰ 最后更新于 2026年11月04日 06:30:36
+> ⏰ 最后更新于 2026年11月05日 06:30:42
 
 
 ---
