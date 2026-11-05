@@ -1,13 +1,13 @@
 ## 每日一图
 
-![People rowing among colorful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)](https://cn.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)](https://cn.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.69%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 84.96%
 
-> ⏰ 最后更新于 2026年11月05日 06:30:42
+> ⏰ 最后更新于 2026年11月06日 06:30:38
 
 
 ---
