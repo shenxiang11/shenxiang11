@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)](https://cn.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.24%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.51%
 
-> ⏰ 最后更新于 2026年11月07日 06:30:31
+> ⏰ 最后更新于 2026年11月08日 06:30:35
 
 
 ---
