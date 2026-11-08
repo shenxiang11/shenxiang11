@@ -1,13 +1,13 @@
 ## 每日一图
 
-![A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.51%
+今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.79%
 
-> ⏰ 最后更新于 2026年11月08日 06:30:35
+> ⏰ 最后更新于 2026年11月09日 06:30:32
 
 
 ---
