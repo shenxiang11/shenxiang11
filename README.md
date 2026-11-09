@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)](https://cn.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)](https://cn.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：██████████████████████████████████████████░░░░░░░░ 85.79%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 86.06%
 
-> ⏰ 最后更新于 2026年11月09日 06:30:32
+> ⏰ 最后更新于 2026年11月10日 06:30:46
 
 
 ---
