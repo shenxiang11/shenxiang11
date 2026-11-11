@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![American flags in a public park in upstate New York (© Matt Champlin/Getty Images)](https://cn.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 86.34%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 86.61%
 
-> ⏰ 最后更新于 2026年11月11日 06:30:33
+> ⏰ 最后更新于 2026年11月12日 06:30:35
 
 
 ---
