@@ -1,13 +1,13 @@
 ## 每日一图
 
-![North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)](https://cn.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 86.89%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.16%
 
-> ⏰ 最后更新于 2026年11月13日 06:30:40
+> ⏰ 最后更新于 2026年11月14日 06:30:40
 
 
 ---
