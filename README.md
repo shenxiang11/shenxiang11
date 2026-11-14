@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.16%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.44%
 
-> ⏰ 最后更新于 2026年11月14日 06:30:40
+> ⏰ 最后更新于 2026年11月15日 06:30:34
 
 
 ---
