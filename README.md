@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Frozen azalea with red leaves (© avoferten/Shutterstock)](https://cn.bing.com/th?id=OHR.FirstFrost_EN-US8881008245_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.44%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.71%
 
-> ⏰ 最后更新于 2026年11月15日 06:30:34
+> ⏰ 最后更新于 2026年11月16日 06:30:38
 
 
 ---
