@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Frozen azalea with red leaves (© avoferten/Shutterstock)](https://cn.bing.com/th?id=OHR.FirstFrost_EN-US8881008245_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.71%
+今年已经过去：███████████████████████████████████████████░░░░░░░ 87.99%
 
-> ⏰ 最后更新于 2026年11月16日 06:30:38
+> ⏰ 最后更新于 2026年11月17日 06:30:36
 
 
 ---
