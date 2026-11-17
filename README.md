@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：███████████████████████████████████████████░░░░░░░ 87.99%
+今年已经过去：████████████████████████████████████████████░░░░░░ 88.26%
 
-> ⏰ 最后更新于 2026年11月17日 06:30:36
+> ⏰ 最后更新于 2026年11月18日 06:30:36
 
 
 ---
