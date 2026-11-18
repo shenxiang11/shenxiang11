@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Pair of barn owls (© Zahoor Salmi/Getty Images)](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 88.26%
+今年已经过去：████████████████████████████████████████████░░░░░░ 88.54%
 
-> ⏰ 最后更新于 2026年11月18日 06:30:36
+> ⏰ 最后更新于 2026年11月19日 06:30:35
 
 
 ---
