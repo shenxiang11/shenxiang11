@@ -1,13 +1,13 @@
 ## 每日一图
 
-![The &#34;Body of Knowledge&#34; sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Diving humpback whale, Kvaloya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 88.81%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.09%
 
-> ⏰ 最后更新于 2026年11月20日 06:30:36
+> ⏰ 最后更新于 2026年11月21日 06:30:46
 
 
 ---
