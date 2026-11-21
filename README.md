@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Diving humpback whale, Kvaloya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)](https://cn.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Nice, Provence-Alpes-Côte d&#39;Azur, France (© Siripong Kaewla-iad/Getty Images)](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.09%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.36%
 
-> ⏰ 最后更新于 2026年11月21日 06:30:46
+> ⏰ 最后更新于 2026年11月22日 06:30:48
 
 
 ---
