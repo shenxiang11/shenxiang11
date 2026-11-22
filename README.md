@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Nice, Provence-Alpes-Côte d&#39;Azur, France (© Siripong Kaewla-iad/Getty Images)](https://cn.bing.com/th?id=OHR.RedNice_EN-US9978351403_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)](https://cn.bing.com/th?id=OHR.JustaHermitage_EN-US0130271816_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.36%
+今年已经过去：████████████████████████████████████████████░░░░░░ 89.63%
 
-> ⏰ 最后更新于 2026年11月22日 06:30:48
+> ⏰ 最后更新于 2026年11月23日 06:30:45
 
 
 ---
