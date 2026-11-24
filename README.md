@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Fiddlehead fern (© Reza Saputra/Getty Images)](https://cn.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：████████████████████████████████████████████░░░░░░ 89.91%
+今年已经过去：█████████████████████████████████████████████░░░░░ 90.18%
 
-> ⏰ 最后更新于 2026年11月24日 06:30:42
+> ⏰ 最后更新于 2026年11月25日 06:30:35
 
 
 ---
