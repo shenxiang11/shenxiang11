@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 90.18%
+今年已经过去：█████████████████████████████████████████████░░░░░ 90.46%
 
-> ⏰ 最后更新于 2026年11月25日 06:30:35
+> ⏰ 最后更新于 2026年11月26日 06:30:34
 
 
 ---
