@@ -1,13 +1,13 @@
 ## 每日一图
 
-![Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
+![Two wild tom turkeys (© davidsdodd/Getty Images)](https://cn.bing.com/th?id=OHR.WildTom_EN-US1069249609_1920x1080.jpg&amp;rf=LaDigue_1920x1080.jpg&amp;pid=hp)
 
 
 ## 珍惜时间
 
-今年已经过去：█████████████████████████████████████████████░░░░░ 90.46%
+今年已经过去：█████████████████████████████████████████████░░░░░ 90.73%
 
-> ⏰ 最后更新于 2026年11月26日 06:30:34
+> ⏰ 最后更新于 2026年11月27日 06:30:37
 
 
 ---
